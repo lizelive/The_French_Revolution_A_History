@@ -6,47 +6,27 @@ The French Revolution: A History was written by the Scottish essayist, historian
 
 This repository contains a tool to convert Project Gutenberg ebook #1301 into a structured collection of markdown files, organized by volumes, books, and chapters.
 
-## Quick Start
-
-### Option 1: Use the Quick Start Script (Recommended)
+## Installation
 
 ```bash
-./quick_start.sh
-```
-
-This script will:
-1. Check for Python 3
-2. Install dependencies automatically
-3. Look for the HTML file or offer to download it
-4. Run the conversion
-
-### Option 2: Manual Installation
-
-```bash
-# Install dependencies
 pip install -r requirements.txt
-
-# Download and convert
-python convert_gutenberg.py --download -o ./book
-
-# Or convert from a local file
-python convert_gutenberg.py -i 1301-h.htm -o ./book
 ```
 
-### Usage
+## Usage
 
-**Option 1: Download and convert automatically**
+**Convert from the included HTML file:**
+```bash
+python convert_gutenberg.py -i original/pg1301-images.html -o ./book
+```
+
+**Download and convert automatically:**
 ```bash
 python convert_gutenberg.py --download -o ./book
 ```
 
-**Option 2: Convert from a local HTML file**
+**Convert from a different HTML file:**
 ```bash
-# First, download the HTML version from Project Gutenberg:
-# https://www.gutenberg.org/files/1301/1301-h/1301-h.htm
-
-# Then run the converter:
-python convert_gutenberg.py -i 1301-h.htm -o ./book
+python convert_gutenberg.py -i <path-to-html-file> -o ./book
 ```
 
 ### Output Structure
