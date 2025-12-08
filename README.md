@@ -8,6 +8,31 @@ This repository contains a tool to convert Project Gutenberg ebook #1301 into a 
 
 ## Quick Start
 
+### Option 1: Use the Quick Start Script (Recommended)
+
+```bash
+./quick_start.sh
+```
+
+This script will:
+1. Check for Python 3
+2. Install dependencies automatically
+3. Look for the HTML file or offer to download it
+4. Run the conversion
+
+### Option 2: Manual Installation
+
+```bash
+# Install dependencies
+pip install -r requirements.txt
+
+# Download and convert
+python convert_gutenberg.py --download -o ./book
+
+# Or convert from a local file
+python convert_gutenberg.py -i 1301-h.htm -o ./book
+```
+
 ### Installation
 
 ```bash
