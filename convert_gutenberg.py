@@ -167,10 +167,29 @@ def html_to_markdown(element, preserve_links=True) -> str:
         text = f"**{content}**"
     elif tag == 'a' and preserve_links:
         content = ''.join(html_to_markdown(child, preserve_links) for child in element.children)
-        href = element.get('href', '')
-        if href.startswith('#footnote'):
-            # Footnote reference
-            text = f"[^{content.strip('[]')}]"
+        href = element.get('href', '') or ''
+        href_l = href.lower()
+
+        # Detect common footnote anchor patterns (Project Gutenberg and others).
+        # Examples: #footnote123, #fn123, #fnref123, #613, #note123
+        is_footnote = False
+        if href_l.startswith('#'):
+            if re.search(r'fn|foot|note|fnref|ftn', href_l):
+                is_footnote = True
+            elif re.match(r'^#\d+$', href_l):
+                is_footnote = True
+
+        if is_footnote:
+            # Prefer extracting the numeric label from the link text itself,
+            # fall back to numbers found in the href, otherwise keep content.
+            m = re.search(r"(\d+)", content)
+            if m:
+                num = m.group(1)
+            else:
+                m2 = re.search(r"(\d+)", href)
+                num = m2.group(1) if m2 else content.strip('[]')
+
+            text = f"[^{num}]"
         else:
             text = content
     elif tag == 'br':
