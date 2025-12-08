@@ -1,155 +1,26 @@
 # Minister Roland.
 
-About the vernal equinox, however, one unexpected gleam of hope does
-      burst forth on Patriotism: the appointment of a thoroughly Patriot
-      Ministry. This also his Majesty, among his innumerable experiments of
-      wedding fire to water, will try. *Quod bonum sit*. Madame d’Udon’s
-      Breakfasts have jingled with a new significance; not even Genevese Dumont
-      but had a word in it. Finally, on the 15th and onwards to the 23d day of
-      March, 1792, when all is negociated,—this is the blessed issue;
-      this Patriot Ministry that we see.
+About the vernal equinox, however, one unexpected gleam of hope does burst forth on Patriotism: the appointment of a thoroughly Patriot Ministry. This also his Majesty, among his innumerable experiments of wedding fire to water, will try. *Quod bonum sit*. Madame d’Udon’s Breakfasts have jingled with a new significance; not even Genevese Dumont but had a word in it. Finally, on the 15th and onwards to the 23d day of March, 1792, when all is negociated,—this is the blessed issue; this Patriot Ministry that we see.
 
-General Dumouriez, with the Foreign Portfolio shall ply Kaunitz and the
-      Kaiser, in another style than did poor Delessarts; whom indeed we have
-      sent to our High Court of Orléans for his sluggishness. War-minister
-      Narbonne is washed away by the Time-flood; poor Chevalier de Grave,
-      chosen by the Court, is fast washing away: then shall austere Servan,
-      able Engineer-Officer, mount suddenly to the War Department. Genevese
-      Clavière sees an old omen realized: passing the Finance Hotel, long years
-      ago, as a poor Genevese Exile, it was borne wondrously on his mind that
-      *he* was to be Finance Minister; and now he is it;—and his
-      poor Wife, given up by the Doctors, rises and walks, not the victim of
-      nerves but their vanquisher.[^460] And above all, our
-      Minister of the Interior? Roland de la Platrière, he of Lyons! So have
-      the Brissotins, public or private Opinion, and Breakfasts in the Place
-      Vendôme decided it. Strict Roland, compared to a *Quaker
-      endimanché*, or Sunday Quaker, goes to kiss hands at the Tuileries, in
-      round hat and sleek hair, his shoes tied with mere riband or ferrat! The
-      Supreme Usher twitches Dumouriez aside: ‘*Quoi, Monsieur!* No
-      buckles to his shoes?’—‘Ah, Monsieur,’ answers Dumouriez, glancing
-      towards the ferrat: ‘All is lost, *Tout est perdu*.’[^461]
+General Dumouriez, with the Foreign Portfolio shall ply Kaunitz and the Kaiser, in another style than did poor Delessarts; whom indeed we have sent to our High Court of Orléans for his sluggishness. War-minister Narbonne is washed away by the Time-flood; poor Chevalier de Grave, chosen by the Court, is fast washing away: then shall austere Servan, able Engineer-Officer, mount suddenly to the War Department. Genevese Clavière sees an old omen realized: passing the Finance Hotel, long years ago, as a poor Genevese Exile, it was borne wondrously on his mind that *he* was to be Finance Minister; and now he is it;—and his poor Wife, given up by the Doctors, rises and walks, not the victim of nerves but their vanquisher.[^460] And above all, our Minister of the Interior? Roland de la Platrière, he of Lyons! So have the Brissotins, public or private Opinion, and Breakfasts in the Place Vendôme decided it. Strict Roland, compared to a *Quaker endimanché*, or Sunday Quaker, goes to kiss hands at the Tuileries, in round hat and sleek hair, his shoes tied with mere riband or ferrat! The Supreme Usher twitches Dumouriez aside: ‘*Quoi, Monsieur!* No buckles to his shoes?’—‘Ah, Monsieur,’ answers Dumouriez, glancing towards the ferrat: ‘All is lost, *Tout est perdu*.’[^461]
 
-And so our fair Roland removes from her upper floor in the Rue
-      Saint-Jacques, to the sumptuous saloons once occupied by Madame Necker.
-      Nay still earlier, it was Calonne that did all this gilding; it was he
-      who ground these lustres, Venetian mirrors; who polished this inlaying,
-      this veneering and or-moulu; and made it, by rubbing of the proper
-      *lamp*, an Aladdin’s Palace:—and now behold, he wanders
-      dim-flitting over Europe, half-drowned in the Rhine-stream, scarcely
-      saving his Papers! *Vos non vobis*.—The fair Roland, equal to
-      either fortune, has her public Dinner on Fridays, the Ministers all there
-      in a body: she withdraws to her desk (the cloth once removed), and seems
-      busy writing; nevertheless loses no word: if for example Deputy Brissot
-      and Minister Clavière get too hot in argument, she, not without timidity,
-      yet with a cunning gracefulness, will interpose. Deputy Brissot’s head,
-      they say, is getting giddy, in this sudden height: as feeble heads do.
+And so our fair Roland removes from her upper floor in the Rue Saint-Jacques, to the sumptuous saloons once occupied by Madame Necker. Nay still earlier, it was Calonne that did all this gilding; it was he who ground these lustres, Venetian mirrors; who polished this inlaying, this veneering and or-moulu; and made it, by rubbing of the proper *lamp*, an Aladdin’s Palace:—and now behold, he wanders dim-flitting over Europe, half-drowned in the Rhine-stream, scarcely saving his Papers! *Vos non vobis*.—The fair Roland, equal to either fortune, has her public Dinner on Fridays, the Ministers all there in a body: she withdraws to her desk (the cloth once removed), and seems busy writing; nevertheless loses no word: if for example Deputy Brissot and Minister Clavière get too hot in argument, she, not without timidity, yet with a cunning gracefulness, will interpose. Deputy Brissot’s head, they say, is getting giddy, in this sudden height: as feeble heads do.
 
-Envious men insinuate that the Wife Roland is Minister, and not the
-      Husband: it is happily the worst they have to charge her with. For the
-      rest, let whose head soever be getting giddy, it is not this brave
-      woman’s. Serene and queenly here, as she was of old in her own hired
-      garret of the Ursulines Convent! She who has quietly shelled French-beans
-      for her dinner; being led to that, as a young maiden, by quiet insight
-      and computation; and knowing what that was, and what she was: such a one
-      will also look quietly on or-moulu and veneering, not ignorant of these
-      either. Calonne did the veneering: he gave dinners here, old Besenval
-      diplomatically whispering to him; and was great: yet Calonne we saw at
-      last “walk with long strides.” Necker next: and where now is Necker? Us
-      also a swift change has brought hither; a swift change will send us
-      hence. Not a Palace but a Caravansera!
+Envious men insinuate that the Wife Roland is Minister, and not the Husband: it is happily the worst they have to charge her with. For the rest, let whose head soever be getting giddy, it is not this brave woman’s. Serene and queenly here, as she was of old in her own hired garret of the Ursulines Convent! She who has quietly shelled French-beans for her dinner; being led to that, as a young maiden, by quiet insight and computation; and knowing what that was, and what she was: such a one will also look quietly on or-moulu and veneering, not ignorant of these either. Calonne did the veneering: he gave dinners here, old Besenval diplomatically whispering to him; and was great: yet Calonne we saw at last “walk with long strides.” Necker next: and where now is Necker? Us also a swift change has brought hither; a swift change will send us hence. Not a Palace but a Caravansera!
 
-So wags and wavers this unrestful World, day after day, month after
-      month. The Streets of Paris, and all Cities, roll daily their oscillatory
-      flood of men; which flood does, nightly, disappear, and lie hidden
-      horizontal in beds and trucklebeds; and awakes on the morrow to new
-      perpendicularity and movement. Men go their roads, foolish or
-      wise;—Engineer Goguelat to and fro, bearing Queen’s cipher. A
-      Madame de Staël is busy; cannot clutch her Narbonne from the Time-flood:
-      a Princess de Lamballe is busy; cannot help her Queen. Barnave, seeing
-      the Feuillants dispersed, and Coblentz so brisk, begs by way of final
-      recompence to kiss her Majesty’s hand; augurs not well of her new course;
-      and retires home to Grenoble, to wed an heiress there. The Café Valois
-      and Méot the Restaurateur’s hear daily gasconade; loud babble of Half-pay
-      Royalists, with or without Poniards; remnants of Aristocrat saloons call
-      the new Ministry *Ministère-Sansculotte*. A Louvet, of the Romance
-      *Faublas*, is busy in the Jacobins. A Cazotte, of the Romance
-      *Diable Amoureux*, is busy elsewhere: better wert thou quiet, old
-      Cazotte; it is a world, this, of magic become *real!* All men are
-      busy; doing they only half guess what:—flinging seeds, of tares
-      mostly, into the ‘Seed-field of TIME’ this, by and by, will declare
-      wholly what.
+So wags and wavers this unrestful World, day after day, month after month. The Streets of Paris, and all Cities, roll daily their oscillatory flood of men; which flood does, nightly, disappear, and lie hidden horizontal in beds and trucklebeds; and awakes on the morrow to new perpendicularity and movement. Men go their roads, foolish or wise;—Engineer Goguelat to and fro, bearing Queen’s cipher. A Madame de Staël is busy; cannot clutch her Narbonne from the Time-flood: a Princess de Lamballe is busy; cannot help her Queen. Barnave, seeing the Feuillants dispersed, and Coblentz so brisk, begs by way of final recompence to kiss her Majesty’s hand; augurs not well of her new course; and retires home to Grenoble, to wed an heiress there. The Café Valois and Méot the Restaurateur’s hear daily gasconade; loud babble of Half-pay Royalists, with or without Poniards; remnants of Aristocrat saloons call the new Ministry *Ministère-Sansculotte*. A Louvet, of the Romance *Faublas*, is busy in the Jacobins. A Cazotte, of the Romance *Diable Amoureux*, is busy elsewhere: better wert thou quiet, old Cazotte; it is a world, this, of magic become *real!* All men are busy; doing they only half guess what:—flinging seeds, of tares mostly, into the ‘Seed-field of TIME’ this, by and by, will declare wholly what.
 
-But Social Explosions have in them something dread, and as it were mad
-      and magical: which indeed Life always secretly has; thus the dumb Earth
-      (says Fable), if you pull her mandrake-roots, will give a dæmonic
-      mad-making *moan*. These Explosions and Revolts ripen, break forth
-      like dumb dread Forces of Nature; and yet they are Men’s forces; and yet
-      *we* are part of them: the Dæmonic that is in man’s life has burst
-      out on us, will sweep us too away!—One day here is like another,
-      and yet it is not like but different. How much is growing, silently
-      resistless, at all moments! Thoughts are growing; forms of Speech are
-      growing, and Customs and even Costumes; still more visibly are actions
-      and transactions growing, and that doomed Strife, of France with herself
-      and with the whole world.
+But Social Explosions have in them something dread, and as it were mad and magical: which indeed Life always secretly has; thus the dumb Earth (says Fable), if you pull her mandrake-roots, will give a dæmonic mad-making *moan*. These Explosions and Revolts ripen, break forth like dumb dread Forces of Nature; and yet they are Men’s forces; and yet *we* are part of them: the Dæmonic that is in man’s life has burst out on us, will sweep us too away!—One day here is like another, and yet it is not like but different. How much is growing, silently resistless, at all moments! Thoughts are growing; forms of Speech are growing, and Customs and even Costumes; still more visibly are actions and transactions growing, and that doomed Strife, of France with herself and with the whole world.
 
-The word *Liberty* is never named now except in conjunction with
-      another; *Liberty* and *Equality*. In like manner, what, in a
-      reign of Liberty and Equality, can these words, “Sir,” “obedient
-      Servant,” “Honour to be,” and such like, signify? Tatters and fibres of
-      old Feudality; which, were it only in the Grammatical province, ought to
-      be rooted out! The Mother Society has long since had proposals to that
-      effect: these she could not entertain, not at the moment. Note too how
-      the Jacobin Brethren are mounting new symbolical headgear: the Woollen
-      Cap or Nightcap, *bonnet de laine*, better known as *bonnet
-      rouge*, the colour being *red*. A thing one wears not only by way
-      of Phrygian Cap-of-Liberty, but also for convenience” sake, and then also
-      in compliment to the Lower-class Patriots and Bastille-Heroes; for the
-      Red Nightcap combines all the three properties. Nay cockades themselves
-      begin to be made of wool, of tricolor yarn: the riband-cockade, as a
-      symptom of Feuillant Upper-class temper, is becoming suspicious. Signs of
-      the times.
+The word *Liberty* is never named now except in conjunction with another; *Liberty* and *Equality*. In like manner, what, in a reign of Liberty and Equality, can these words, “Sir,” “obedient Servant,” “Honour to be,” and such like, signify? Tatters and fibres of old Feudality; which, were it only in the Grammatical province, ought to be rooted out! The Mother Society has long since had proposals to that effect: these she could not entertain, not at the moment. Note too how the Jacobin Brethren are mounting new symbolical headgear: the Woollen Cap or Nightcap, *bonnet de laine*, better known as *bonnet rouge*, the colour being *red*. A thing one wears not only by way of Phrygian Cap-of-Liberty, but also for convenience” sake, and then also in compliment to the Lower-class Patriots and Bastille-Heroes; for the Red Nightcap combines all the three properties. Nay cockades themselves begin to be made of wool, of tricolor yarn: the riband-cockade, as a symptom of Feuillant Upper-class temper, is becoming suspicious. Signs of the times.
 
-Still more, note the travail-throes of Europe: or, rather, note the birth
-      she brings; for the successive throes and shrieks, of Austrian and
-      Prussian Alliance, of Kaunitz Anti-jacobin Despatch, of French
-      Ambassadors cast out, and so forth, were long to note. Dumouriez
-      corresponds with Kaunitz, Metternich, or Cobentzel, in another style that
-      Delessarts did. Strict becomes stricter; categorical answer, as to this
-      Coblentz work and much else, shall be given. Failing which? Failing
-      which, on the 20th day of April 1792, King and Ministers step over to the
-      Salle de Manége; promulgate how the matter stands; and poor Louis, “with
-      tears in his eyes,” proposes that the Assembly do now decree War. After
-      due eloquence, War is decreed that night.
+Still more, note the travail-throes of Europe: or, rather, note the birth she brings; for the successive throes and shrieks, of Austrian and Prussian Alliance, of Kaunitz Anti-jacobin Despatch, of French Ambassadors cast out, and so forth, were long to note. Dumouriez corresponds with Kaunitz, Metternich, or Cobentzel, in another style that Delessarts did. Strict becomes stricter; categorical answer, as to this Coblentz work and much else, shall be given. Failing which? Failing which, on the 20th day of April 1792, King and Ministers step over to the Salle de Manége; promulgate how the matter stands; and poor Louis, “with tears in his eyes,” proposes that the Assembly do now decree War. After due eloquence, War is decreed that night.
 
-War, indeed! Paris came all crowding, full of expectancy, to the morning,
-      and still more to the evening session. D’Orléans with his two sons, is
-      there; looks on, wide-eyed, from the opposite Gallery.[^462] Thou canst look, O Philippe: it is a War
-      big with issues, for thee and for all men. Cimmerian Obscurantism and
-      this thrice glorious Revolution shall wrestle for it, then: some
-      Four-and-twenty years; in immeasurable Briareus’ wrestle; trampling and
-      tearing; before they can come to any, not agreement, but compromise, and
-      approximate ascertainment each of what is in the other.
+War, indeed! Paris came all crowding, full of expectancy, to the morning, and still more to the evening session. D’Orléans with his two sons, is there; looks on, wide-eyed, from the opposite Gallery.[^462] Thou canst look, O Philippe: it is a War big with issues, for thee and for all men. Cimmerian Obscurantism and this thrice glorious Revolution shall wrestle for it, then: some Four-and-twenty years; in immeasurable Briareus’ wrestle; trampling and tearing; before they can come to any, not agreement, but compromise, and approximate ascertainment each of what is in the other.
 
-Let our Three Generals on the Frontiers look to it, therefore; and poor
-      Chevalier de Grave, the Warminister, consider what he will do. What is in
-      the three Generals and Armies we may guess. As for poor Chevalier de
-      Grave, he, in this whirl of things all coming to a press and pinch upon
-      him, loses head, and merely whirls with them, in a totally distracted
-      manner; signing himself at last, “De Grave, *Mayor of Paris;*”
-      whereupon he demits, returns over the Channel, to walk in Kensington
-      Gardens;[^463] and austere Servan, the able
-      Engineer-Officer, is elevated in his stead. To the post of Honour? To
-      that of Difficulty, at least.
-
-
----
-
-## Footnotes
+Let our Three Generals on the Frontiers look to it, therefore; and poor Chevalier de Grave, the Warminister, consider what he will do. What is in the three Generals and Armies we may guess. As for poor Chevalier de Grave, he, in this whirl of things all coming to a press and pinch upon him, loses head, and merely whirls with them, in a totally distracted manner; signing himself at last, “De Grave, *Mayor of Paris;*” whereupon he demits, returns over the Channel, to walk in Kensington Gardens;[^463] and austere Servan, the able Engineer-Officer, is elevated in his stead. To the post of Honour? To that of Difficulty, at least.
 
 [^460]: Dumont, c. 20, 21.
-
 [^461]: Madame Roland, ii. 80-115.
-
 [^462]: Deux Amis , vii. 146-66.
-
 [^463]: Dumont, c. 19, 21.

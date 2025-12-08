@@ -1,142 +1,23 @@
 # Clubbism.
 
-Where the heart is full, it seeks, for a thousand reasons, in a thousand
-      ways, to impart itself. How sweet, indispensable, in such cases, is
-      fellowship; soul mystically strengthening soul! The meditative Germans,
-      some think, have been of opinion that Enthusiasm in the general means
-      simply excessive Congregating—*Schwärmerey*, or
-      *Swarming*. At any rate, do we not see glimmering half-red embers,
-      if laid *together*, get into the brightest white glow?
+Where the heart is full, it seeks, for a thousand reasons, in a thousand ways, to impart itself. How sweet, indispensable, in such cases, is fellowship; soul mystically strengthening soul! The meditative Germans, some think, have been of opinion that Enthusiasm in the general means simply excessive Congregating—*Schwärmerey*, or *Swarming*. At any rate, do we not see glimmering half-red embers, if laid *together*, get into the brightest white glow?
 
-In such a France, gregarious Reunions will needs multiply, intensify;
-      French Life will step out of doors, and, from domestic, become a public
-      Club Life. Old Clubs, which already germinated, grow and flourish; new
-      every where bud forth. It is the sure symptom of Social Unrest: in such
-      way, most infallibly of all, does Social Unrest exhibit itself; find
-      solacement, and also nutriment. In every French head there hangs now,
-      whether for terror or for hope, some prophetic picture of a New France:
-      prophecy which brings, nay which almost is, its own fulfilment; and in
-      all ways, consciously and unconsciously, works towards that.
+In such a France, gregarious Reunions will needs multiply, intensify; French Life will step out of doors, and, from domestic, become a public Club Life. Old Clubs, which already germinated, grow and flourish; new every where bud forth. It is the sure symptom of Social Unrest: in such way, most infallibly of all, does Social Unrest exhibit itself; find solacement, and also nutriment. In every French head there hangs now, whether for terror or for hope, some prophetic picture of a New France: prophecy which brings, nay which almost is, its own fulfilment; and in all ways, consciously and unconsciously, works towards that.
 
-Observe, moreover, how the Aggregative Principle, let it be but deep
-      enough, goes on aggregating, and this even in a geometrical progression:
-      how when the whole world, in such a plastic time, is forming itself into
-      Clubs, some One Club, the strongest or luckiest, shall, by friendly
-      attracting, by victorious compelling, grow ever stronger, till it become
-      immeasurably strong; and all the others, with their strength, be either
-      lovingly absorbed into it, or hostilely abolished by it! This if the
-      Club-spirit is universal; if the time *is* plastic. Plastic enough
-      is the time, universal the Club-spirit: such an all absorbing, paramount
-      One Club cannot be wanting.
+Observe, moreover, how the Aggregative Principle, let it be but deep enough, goes on aggregating, and this even in a geometrical progression: how when the whole world, in such a plastic time, is forming itself into Clubs, some One Club, the strongest or luckiest, shall, by friendly attracting, by victorious compelling, grow ever stronger, till it become immeasurably strong; and all the others, with their strength, be either lovingly absorbed into it, or hostilely abolished by it! This if the Club-spirit is universal; if the time *is* plastic. Plastic enough is the time, universal the Club-spirit: such an all absorbing, paramount One Club cannot be wanting.
 
-What a progress, since the first salient-point of the Breton Committee!
-      It worked long in secret, not languidly; it has come with the National
-      Assembly to Paris; calls itself *Club;* calls itself in imitation,
-      as is thought, of those generous Price-Stanhope English, *French
-      Revolution Club;* but soon, with more originality, *Club of Friends
-      of the Constitution.* Moreover it has leased, for itself, at a fair
-      rent, the Hall of the Jacobin’s Convent, one of our “superfluous
-      edifices;” and does therefrom now, in these spring months, begin shining
-      out on an admiring Paris. And so, by degrees, under the shorter popular
-      title of *Jacobins’ Club*, it shall become memorable to all times
-      and lands. Glance into the interior: strongly yet modestly benched and
-      seated; as many as Thirteen Hundred chosen Patriots; Assembly Members not
-      a few. Barnave, the two Lameths are seen there; occasionally Mirabeau,
-      perpetually Robespierre; also the ferret-visage of Fouquier-Tinville with
-      other attorneys; Anacharsis of Prussian Scythia, and miscellaneous
-      Patriots,—though all is yet in the most perfectly clean-washed
-      state; decent, nay dignified. President on platform, President’s bell are
-      not wanting; oratorical Tribune high-raised; nor strangers’ galleries,
-      wherein also sit women. Has any French Antiquarian Society preserved that
-      written Lease of the Jacobins Convent Hall? Or was it, unluckier even
-      than Magna Charta, *clipt* by sacrilegious Tailors? Universal
-      History is not indifferent to it.
+What a progress, since the first salient-point of the Breton Committee! It worked long in secret, not languidly; it has come with the National Assembly to Paris; calls itself *Club;* calls itself in imitation, as is thought, of those generous Price-Stanhope English, *French Revolution Club;* but soon, with more originality, *Club of Friends of the Constitution.* Moreover it has leased, for itself, at a fair rent, the Hall of the Jacobin’s Convent, one of our “superfluous edifices;” and does therefrom now, in these spring months, begin shining out on an admiring Paris. And so, by degrees, under the shorter popular title of *Jacobins’ Club*, it shall become memorable to all times and lands. Glance into the interior: strongly yet modestly benched and seated; as many as Thirteen Hundred chosen Patriots; Assembly Members not a few. Barnave, the two Lameths are seen there; occasionally Mirabeau, perpetually Robespierre; also the ferret-visage of Fouquier-Tinville with other attorneys; Anacharsis of Prussian Scythia, and miscellaneous Patriots,—though all is yet in the most perfectly clean-washed state; decent, nay dignified. President on platform, President’s bell are not wanting; oratorical Tribune high-raised; nor strangers’ galleries, wherein also sit women. Has any French Antiquarian Society preserved that written Lease of the Jacobins Convent Hall? Or was it, unluckier even than Magna Charta, *clipt* by sacrilegious Tailors? Universal History is not indifferent to it.
 
-These Friends of the Constitution have met mainly, as their name may
-      foreshadow, to look after Elections when an Election comes, and procure
-      fit men; but likewise to consult generally that the Commonweal take no
-      damage; one as yet sees not how. For indeed let two or three gather
-      together any where, if it be not in Church, where all are bound to the
-      *passive* state; no mortal can say accurately, themselves as little
-      as any, for *what* they are gathered. How often has the broached
-      barrel proved not to be for joy and heart effusion, but for duel and
-      head-breakage; and the promised feast become a Feast of the Lapithae!
-      This Jacobins Club, which at first shone resplendent, and was thought to
-      be a new celestial Sun for enlightening the Nations, had, as things all
-      have, to work through its appointed phases: it burned unfortunately more
-      and more lurid, more sulphurous, distracted;—and swam at last,
-      through the astonished Heaven, like a Tartarean Portent, and
-      lurid-burning Prison of Spirits in Pain.
+These Friends of the Constitution have met mainly, as their name may foreshadow, to look after Elections when an Election comes, and procure fit men; but likewise to consult generally that the Commonweal take no damage; one as yet sees not how. For indeed let two or three gather together any where, if it be not in Church, where all are bound to the *passive* state; no mortal can say accurately, themselves as little as any, for *what* they are gathered. How often has the broached barrel proved not to be for joy and heart effusion, but for duel and head-breakage; and the promised feast become a Feast of the Lapithae! This Jacobins Club, which at first shone resplendent, and was thought to be a new celestial Sun for enlightening the Nations, had, as things all have, to work through its appointed phases: it burned unfortunately more and more lurid, more sulphurous, distracted;—and swam at last, through the astonished Heaven, like a Tartarean Portent, and lurid-burning Prison of Spirits in Pain.
 
-Its style of eloquence? Rejoice, Reader, that thou knowest it not, that
-      thou canst never perfectly know. The Jacobins published a Journal of
-      Debates, where they that have the heart may examine: Impassioned,
-      full-droning Patriotic-eloquence; implacable, unfertile—save for
-      Destruction, which was indeed its work: most wearisome, though most
-      deadly. Be thankful that Oblivion covers so much; that all carrion is by
-      and by buried in the green Earth’s bosom, and even makes her grow the
-      greener. The Jacobins are buried; but their work is not; it continues
-      “making the tour of the world,” as it can. It might be seen lately, for
-      instance, with bared bosom and death-defiant eye, as far on as Greek
-      Missolonghi; and, strange enough, old slumbering Hellas was resuscitated,
-      into *somnambulism* which will become clear wakefulness, by a voice
-      from the Rue St. Honoré! All dies, as we often say; except the spirit of
-      man, of what man *does*. Thus has not the very House of the Jacobins
-      vanished; scarcely lingering in a few old men’s memories? The St. Honoré
-      Market has brushed it away, and now where dull-droning eloquence, like a
-      Trump of Doom, once shook the world, there is pacific chaffering for
-      poultry and greens. The sacred National Assembly Hall itself has become
-      common ground; President’s platform permeable to wain and dustcart; for
-      the Rue de Rivoli runs there. Verily, at Cockcrow (of this Cock or the
-      other), *all* Apparitions do melt and dissolve in space.
+Its style of eloquence? Rejoice, Reader, that thou knowest it not, that thou canst never perfectly know. The Jacobins published a Journal of Debates, where they that have the heart may examine: Impassioned, full-droning Patriotic-eloquence; implacable, unfertile—save for Destruction, which was indeed its work: most wearisome, though most deadly. Be thankful that Oblivion covers so much; that all carrion is by and by buried in the green Earth’s bosom, and even makes her grow the greener. The Jacobins are buried; but their work is not; it continues “making the tour of the world,” as it can. It might be seen lately, for instance, with bared bosom and death-defiant eye, as far on as Greek Missolonghi; and, strange enough, old slumbering Hellas was resuscitated, into *somnambulism* which will become clear wakefulness, by a voice from the Rue St. Honoré! All dies, as we often say; except the spirit of man, of what man *does*. Thus has not the very House of the Jacobins vanished; scarcely lingering in a few old men’s memories? The St. Honoré Market has brushed it away, and now where dull-droning eloquence, like a Trump of Doom, once shook the world, there is pacific chaffering for poultry and greens. The sacred National Assembly Hall itself has become common ground; President’s platform permeable to wain and dustcart; for the Rue de Rivoli runs there. Verily, at Cockcrow (of this Cock or the other), *all* Apparitions do melt and dissolve in space.
 
-The Paris *Jacobins* became “the Mother-Society,
-      *Société-Mère;*” and had as many as “three hundred” shrill-tongued
-      daughters in “direct correspondence” with her. Of indirectly
-      corresponding, what we may call grand-daughters and minute progeny, she
-      counted “forty-four thousand!”—But for the present we note only two
-      things: the first of them a mere anecdote. One night, a couple of brother
-      Jacobins are doorkeepers; for the members take this post of duty and
-      honour in rotation, and admit none that have not tickets: one doorkeeper
-      was the worthy Sieur Laïs, a patriotic Opera-singer, stricken in years,
-      whose windpipe is long since closed without result; the other, young, and
-      named Louis Philippe, D’Orléans’s firstborn, has in this latter time,
-      after unheard-of destinies, become Citizen-King, and struggles to rule
-      for a season. All-flesh is grass; higher reedgrass or creeping herb.
+The Paris *Jacobins* became “the Mother-Society, *Société-Mère;*” and had as many as “three hundred” shrill-tongued daughters in “direct correspondence” with her. Of indirectly corresponding, what we may call grand-daughters and minute progeny, she counted “forty-four thousand!”—But for the present we note only two things: the first of them a mere anecdote. One night, a couple of brother Jacobins are doorkeepers; for the members take this post of duty and honour in rotation, and admit none that have not tickets: one doorkeeper was the worthy Sieur Laïs, a patriotic Opera-singer, stricken in years, whose windpipe is long since closed without result; the other, young, and named Louis Philippe, D’Orléans’s firstborn, has in this latter time, after unheard-of destinies, become Citizen-King, and struggles to rule for a season. All-flesh is grass; higher reedgrass or creeping herb.
 
-The second thing we have to note is historical: that the Mother-Society,
-      even in this its effulgent period, cannot content all Patriots. Already
-      it must throw off, so to speak, two dissatisfied swarms; a swarm to the
-      right, a swarm to the left. One party, which thinks the Jacobins
-      lukewarm, constitutes itself into *Club of the Cordeliers;* a hotter
-      Club: it is Danton’s element: with whom goes Desmoulins. The other party,
-      again, which thinks the Jacobins scalding-hot, flies off to the right,
-      and becomes “Club of 1789, Friends of the *Monarchic* Constitution.”
-      They are afterwards named “*Feuillans Club;*” their place of meeting
-      being the Feuillans Convent. Lafayette is, or becomes, their chief-man;
-      supported by the respectable Patriot everywhere, by the mass of Property
-      and Intelligence,—with the most flourishing prospects. They, in
-      these June days of 1790, do, in the Palais Royal, dine solemnly with open
-      windows; to the cheers of the people; with toasts, with inspiriting
-      songs,—with one song at least, among the feeblest ever sung.[^283] They shall, in due time be hooted forth,
-      over the borders, into Cimmerian Night.
+The second thing we have to note is historical: that the Mother-Society, even in this its effulgent period, cannot content all Patriots. Already it must throw off, so to speak, two dissatisfied swarms; a swarm to the right, a swarm to the left. One party, which thinks the Jacobins lukewarm, constitutes itself into *Club of the Cordeliers;* a hotter Club: it is Danton’s element: with whom goes Desmoulins. The other party, again, which thinks the Jacobins scalding-hot, flies off to the right, and becomes “Club of 1789, Friends of the *Monarchic* Constitution.” They are afterwards named “*Feuillans Club;*” their place of meeting being the Feuillans Convent. Lafayette is, or becomes, their chief-man; supported by the respectable Patriot everywhere, by the mass of Property and Intelligence,—with the most flourishing prospects. They, in these June days of 1790, do, in the Palais Royal, dine solemnly with open windows; to the cheers of the people; with toasts, with inspiriting songs,—with one song at least, among the feeblest ever sung.[^283] They shall, in due time be hooted forth, over the borders, into Cimmerian Night.
 
-Another expressly Monarchic or Royalist Club, “*Club des
-      Monarchiens*,” though a Club of ample funds, and all sitting in damask
-      sofas, cannot realise the smallest momentary cheer; realises only scoffs
-      and groans;—till, ere long, certain Patriots in disorderly
-      sufficient number, proceed thither, for a night or for nights, and groan
-      it out of pain. Vivacious alone shall the Mother-Society and her family
-      be. The very Cordeliers may, as it were, return into her bosom, which
-      will have grown warm enough.
+Another expressly Monarchic or Royalist Club, “*Club des Monarchiens*,” though a Club of ample funds, and all sitting in damask sofas, cannot realise the smallest momentary cheer; realises only scoffs and groans;—till, ere long, certain Patriots in disorderly sufficient number, proceed thither, for a night or for nights, and groan it out of pain. Vivacious alone shall the Mother-Society and her family be. The very Cordeliers may, as it were, return into her bosom, which will have grown warm enough.
 
-Fatal-looking! Are not such Societies an incipient New Order of Society
-      itself? The Aggregative Principle anew at work in a Society grown
-      obsolete, cracked asunder, dissolving into rubbish and primary atoms?
-
-
----
-
-## Footnotes
+Fatal-looking! Are not such Societies an incipient New Order of Society itself? The Aggregative Principle anew at work in a Society grown obsolete, cracked asunder, dissolving into rubbish and primary atoms?
 
 [^283]: Hist. Parl. vi. 334.

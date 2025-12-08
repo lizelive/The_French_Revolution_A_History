@@ -1,137 +1,27 @@
 # At Versailles.
 
-But already Pallas Athene (in the shape of Demoiselle Théroigne) is busy
-      with Flandre and the dismounted Dragoons. She, and such women as are
-      fittest, go through the ranks; speak with an earnest jocosity; clasp
-      rough troopers to their patriot bosom, crush down spontoons and
-      musketoons with soft arms: can a man, that were worthy of the name of
-      man, attack famishing patriot women?
+But already Pallas Athene (in the shape of Demoiselle Théroigne) is busy with Flandre and the dismounted Dragoons. She, and such women as are fittest, go through the ranks; speak with an earnest jocosity; clasp rough troopers to their patriot bosom, crush down spontoons and musketoons with soft arms: can a man, that were worthy of the name of man, attack famishing patriot women?
 
-One reads that Théroigne had bags of money, which she distributed over
-      Flandre:—furnished by whom? Alas, with money-bags one seldom sits
-      on insurrectionary cannon. Calumnious Royalism! Théroigne had only the
-      limited earnings of her profession of unfortunate-female; money she had
-      not, but brown locks, the figure of a heathen Goddess, and an eloquent
-      tongue and heart.
+One reads that Théroigne had bags of money, which she distributed over Flandre:—furnished by whom? Alas, with money-bags one seldom sits on insurrectionary cannon. Calumnious Royalism! Théroigne had only the limited earnings of her profession of unfortunate-female; money she had not, but brown locks, the figure of a heathen Goddess, and an eloquent tongue and heart.
 
-Meanwhile, Saint-Antoine, in groups and troops, is continually arriving;
-      wetted, sulky; with pikes and impromptu billhooks: driven thus far by
-      popular fixed-idea. So many hirsute figures driven hither, in that
-      manner: figures that have come to do they know not what; figures that
-      have come to see it done! Distinguished among all figures, who is this,
-      of gaunt stature, with leaden breastplate, though a small one;[^243] bushy in red grizzled locks; nay, with
-      long tile-beard? It is Jourdan, unjust dealer in mules; a dealer no
-      longer, but a Painter’s Layfigure, playing truant this day. From the
-      necessities of Art comes his long tile-beard; whence his leaden
-      breastplate (unless indeed he were some Hawker licensed by leaden badge)
-      may have come,—will perhaps remain for ever a Historical Problem.
-      Another Saul among the people we discern: “*Père Adam*, Father
-      Adam,” as the groups name him; to us better known as bull-voiced Marquis
-      Saint-Huruge; hero of the *Veto;* a man that has had losses, and
-      deserved them. The tall Marquis, emitted some days ago from limbo, looks
-      peripatetically on this scene, from under his umbrella, not without
-      interest. All which persons and things, hurled together as we see; Pallas
-      Athene, busy with Flandre; patriotic Versailles National Guards, short of
-      ammunition, and deserted by d’Estaing their Colonel, and commanded by
-      Lecointre their Major; then caracoling Bodyguards, sour, dispirited, with
-      their buckskins wet; and finally this flowing sea of indignant
-      Squalor,—may they not give rise to occurrences?
+Meanwhile, Saint-Antoine, in groups and troops, is continually arriving; wetted, sulky; with pikes and impromptu billhooks: driven thus far by popular fixed-idea. So many hirsute figures driven hither, in that manner: figures that have come to do they know not what; figures that have come to see it done! Distinguished among all figures, who is this, of gaunt stature, with leaden breastplate, though a small one;[^243] bushy in red grizzled locks; nay, with long tile-beard? It is Jourdan, unjust dealer in mules; a dealer no longer, but a Painter’s Layfigure, playing truant this day. From the necessities of Art comes his long tile-beard; whence his leaden breastplate (unless indeed he were some Hawker licensed by leaden badge) may have come,—will perhaps remain for ever a Historical Problem. Another Saul among the people we discern: “*Père Adam*, Father Adam,” as the groups name him; to us better known as bull-voiced Marquis Saint-Huruge; hero of the *Veto;* a man that has had losses, and deserved them. The tall Marquis, emitted some days ago from limbo, looks peripatetically on this scene, from under his umbrella, not without interest. All which persons and things, hurled together as we see; Pallas Athene, busy with Flandre; patriotic Versailles National Guards, short of ammunition, and deserted by d’Estaing their Colonel, and commanded by Lecointre their Major; then caracoling Bodyguards, sour, dispirited, with their buckskins wet; and finally this flowing sea of indignant Squalor,—may they not give rise to occurrences?
 
-Behold, however, the Twelve She-deputies return from the Château. Without
-      President Mounier, indeed; but radiant with joy, shouting ‘*Life to the
-      King and his House*.’ Apparently the news are good, Mesdames? News of
-      the best! Five of us were admitted to the internal splendours, to the
-      Royal Presence. This slim damsel, “Louison Chabray, worker in sculpture,
-      aged only seventeen,” as being of the best looks and address, her we
-      appointed speaker. On whom, and indeed on all of us, his Majesty looked
-      nothing but graciousness. Nay, when Louison, addressing him, was like to
-      faint, he took her in his royal arms; and said gallantly, ‘It was well
-      worth while (*Elle en valût bien la peine*).’ Consider, O women,
-      what a King! His words were of comfort, and that only: there shall be
-      provision sent to Paris, if provision is in the world; grains shall
-      circulate free as air; millers shall grind, or do worse, while their
-      millstones endure; and nothing be left wrong which a Restorer of French
-      Liberty can right.
+Behold, however, the Twelve She-deputies return from the Château. Without President Mounier, indeed; but radiant with joy, shouting ‘*Life to the King and his House*.’ Apparently the news are good, Mesdames? News of the best! Five of us were admitted to the internal splendours, to the Royal Presence. This slim damsel, “Louison Chabray, worker in sculpture, aged only seventeen,” as being of the best looks and address, her we appointed speaker. On whom, and indeed on all of us, his Majesty looked nothing but graciousness. Nay, when Louison, addressing him, was like to faint, he took her in his royal arms; and said gallantly, ‘It was well worth while (*Elle en valût bien la peine*).’ Consider, O women, what a King! His words were of comfort, and that only: there shall be provision sent to Paris, if provision is in the world; grains shall circulate free as air; millers shall grind, or do worse, while their millstones endure; and nothing be left wrong which a Restorer of French Liberty can right.
 
-Good news these; but, to wet Menads, all too incredible! There seems no
-      proof, then? *Words* of comfort are words only; which will feed
-      nothing. O miserable people, betrayed by Aristocrats, who corrupt thy
-      very messengers! In his royal arms, Mademoiselle Louison? In his arms?
-      Thou shameless minx, worthy of a name—that shall be nameless! Yes,
-      thy skin is soft: ours is rough with hardship; and well wetted, waiting
-      here in the rain. No children hast thou hungry at home; only alabaster
-      dolls, that weep not! The traitress! To the Lanterne!—And so poor
-      Louison Chabray, no asseveration or shrieks availing her, fair slim
-      damsel, late in the arms of Royalty, has a garter round her neck, and
-      furibund Amazons at each end; is about to perish so,—when two
-      Bodyguards gallop up, indignantly dissipating; and rescue her. The
-      miscredited Twelve hasten back to the Château, for an “answer in
-      writing.”
+Good news these; but, to wet Menads, all too incredible! There seems no proof, then? *Words* of comfort are words only; which will feed nothing. O miserable people, betrayed by Aristocrats, who corrupt thy very messengers! In his royal arms, Mademoiselle Louison? In his arms? Thou shameless minx, worthy of a name—that shall be nameless! Yes, thy skin is soft: ours is rough with hardship; and well wetted, waiting here in the rain. No children hast thou hungry at home; only alabaster dolls, that weep not! The traitress! To the Lanterne!—And so poor Louison Chabray, no asseveration or shrieks availing her, fair slim damsel, late in the arms of Royalty, has a garter round her neck, and furibund Amazons at each end; is about to perish so,—when two Bodyguards gallop up, indignantly dissipating; and rescue her. The miscredited Twelve hasten back to the Château, for an “answer in writing.”
 
-Nay, behold, a new flight of Menads, with “M. Brunout Bastille
-      Volunteer,” as impressed-commandant, at the head of it. These also will
-      advance to the Grate of the Grand Court, and see what is toward. Human
-      patience, in wet buckskins, has its limits. Bodyguard Lieutenant, M. de
-      Savonnières, for one moment, lets his temper, long provoked, long pent,
-      give way. He not only dissipates these latter Menads; but caracoles and
-      cuts, or indignantly flourishes, at M. Brunout, the impressed-commandant;
-      and, finding great relief in it, even chases him; Brunout flying nimbly,
-      though in a pirouette manner, and now with sword also drawn. At which
-      sight of wrath and victory two other Bodyguards (for wrath is contagious,
-      and to pent Bodyguards is so solacing) do likewise give way; give chase,
-      with brandished sabre, and in the air make horrid circles. So that poor
-      Brunout has nothing for it but to retreat with accelerated nimbleness,
-      through rank after rank; Parthian-like, fencing as he flies; above all,
-      shouting lustily, ‘*On nous laisse assassiner*, They are getting us
-      assassinated?’
+Nay, behold, a new flight of Menads, with “M. Brunout Bastille Volunteer,” as impressed-commandant, at the head of it. These also will advance to the Grate of the Grand Court, and see what is toward. Human patience, in wet buckskins, has its limits. Bodyguard Lieutenant, M. de Savonnières, for one moment, lets his temper, long provoked, long pent, give way. He not only dissipates these latter Menads; but caracoles and cuts, or indignantly flourishes, at M. Brunout, the impressed-commandant; and, finding great relief in it, even chases him; Brunout flying nimbly, though in a pirouette manner, and now with sword also drawn. At which sight of wrath and victory two other Bodyguards (for wrath is contagious, and to pent Bodyguards is so solacing) do likewise give way; give chase, with brandished sabre, and in the air make horrid circles. So that poor Brunout has nothing for it but to retreat with accelerated nimbleness, through rank after rank; Parthian-like, fencing as he flies; above all, shouting lustily, ‘*On nous laisse assassiner*, They are getting us assassinated?’
 
-Shameful! Three against one! Growls come from the Lecointrian ranks;
-      bellowings,—lastly shots. Savonnières” arm is raised to strike: the
-      bullet of a Lecointrian musket shatters it; the brandished sabre jingles
-      down harmless. Brunout has escaped, this duel well ended: but the wild
-      howl of war is everywhere beginning to pipe!
+Shameful! Three against one! Growls come from the Lecointrian ranks; bellowings,—lastly shots. Savonnières” arm is raised to strike: the bullet of a Lecointrian musket shatters it; the brandished sabre jingles down harmless. Brunout has escaped, this duel well ended: but the wild howl of war is everywhere beginning to pipe!
 
-The Amazons recoil; Saint-Antoine has its cannon pointed (full of
-      grapeshot); thrice applies the lit flambeau; which thrice refuses to
-      catch,—the touchholes are so wetted; and voices cry: ‘*Arrêtez,
-      il n’est pas temps encore*, Stop, it is not yet time!’[^244] Messieurs of the Garde-du-Corps, ye had
-      orders not to fire; nevertheless two of you limp dismounted, and one
-      war-horse lies slain. Were it not well to draw back out of shot-range;
-      finally to file off,—into the interior? If in so filing off, there
-      did a musketoon or two discharge itself, at these armed shopkeepers,
-      hooting and crowing, could man wonder? Draggled are your white cockades
-      of an enormous size; would to Heaven they were got exchanged for tricolor
-      ones! Your buckskins are wet, your hearts heavy. Go, and return not!
+The Amazons recoil; Saint-Antoine has its cannon pointed (full of grapeshot); thrice applies the lit flambeau; which thrice refuses to catch,—the touchholes are so wetted; and voices cry: ‘*Arrêtez, il n’est pas temps encore*, Stop, it is not yet time!’[^244] Messieurs of the Garde-du-Corps, ye had orders not to fire; nevertheless two of you limp dismounted, and one war-horse lies slain. Were it not well to draw back out of shot-range; finally to file off,—into the interior? If in so filing off, there did a musketoon or two discharge itself, at these armed shopkeepers, hooting and crowing, could man wonder? Draggled are your white cockades of an enormous size; would to Heaven they were got exchanged for tricolor ones! Your buckskins are wet, your hearts heavy. Go, and return not!
 
-The Bodyguards file off, as we hint; giving and receiving shots; drawing
-      no life-blood; leaving boundless indignation. Some three times in the
-      thickening dusk, a glimpse of them is seen, at this or the other Portal:
-      saluted always with execrations, with the whew of lead. Let but a
-      Bodyguard shew face, he is hunted by Rascality;—for instance, poor
-      “M. de Moucheton of the Scotch Company,” owner of the slain war-horse;
-      and has to be smuggled off by Versailles Captains. Or rusty firelocks
-      belch after him, shivering asunder his—hat. In the end, by superior
-      Order, the Bodyguards, all but the few on immediate duty, disappear; or
-      as it were abscond; and march, under cloud of night, to Rambouillet.[^245]
+The Bodyguards file off, as we hint; giving and receiving shots; drawing no life-blood; leaving boundless indignation. Some three times in the thickening dusk, a glimpse of them is seen, at this or the other Portal: saluted always with execrations, with the whew of lead. Let but a Bodyguard shew face, he is hunted by Rascality;—for instance, poor “M. de Moucheton of the Scotch Company,” owner of the slain war-horse; and has to be smuggled off by Versailles Captains. Or rusty firelocks belch after him, shivering asunder his—hat. In the end, by superior Order, the Bodyguards, all but the few on immediate duty, disappear; or as it were abscond; and march, under cloud of night, to Rambouillet.[^245]
 
-We remark also that the Versaillese have now got ammunition: all
-      afternoon, the official Person could find none; till, in these so
-      critical moments, a patriotic Sublieutenant set a pistol to his ear, and
-      would thank him to find some,—which he thereupon succeeded in
-      doing. Likewise that Flandre, disarmed by Pallas Athene, says openly, it
-      will not fight with citizens; and for token of peace, has exchanged
-      cartridges with the Versaillese.
+We remark also that the Versaillese have now got ammunition: all afternoon, the official Person could find none; till, in these so critical moments, a patriotic Sublieutenant set a pistol to his ear, and would thank him to find some,—which he thereupon succeeded in doing. Likewise that Flandre, disarmed by Pallas Athene, says openly, it will not fight with citizens; and for token of peace, has exchanged cartridges with the Versaillese.
 
-Sansculottism is now among mere friends; and can “circulate freely;”
-      indignant at Bodyguards;—complaining also considerably of hunger.
-
-
----
-
-## Footnotes
+Sansculottism is now among mere friends; and can “circulate freely;” indignant at Bodyguards;—complaining also considerably of hunger.
 
 [^243]: See Weber, ii. 185-231.
-
 [^244]: Deux Amis , iii. 192-201.
-
 [^245]: Weber, ubi supra.

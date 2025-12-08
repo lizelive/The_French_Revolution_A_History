@@ -1,151 +1,30 @@
 # Risen against Tyrants.
 
-Against all which incalculable impediments, horrors and disasters, what
-      can a Jacobin Convention oppose? The uncalculating Spirit of Jacobinism,
-      and Sansculottic sans-formulistic Frenzy! Our Enemies press in on us,
-      says Danton, but they shall not conquer us, ‘we will burn France to ashes
-      rather, *nous brûlerons la France*.’
+Against all which incalculable impediments, horrors and disasters, what can a Jacobin Convention oppose? The uncalculating Spirit of Jacobinism, and Sansculottic sans-formulistic Frenzy! Our Enemies press in on us, says Danton, but they shall not conquer us, ‘we will burn France to ashes rather, *nous brûlerons la France*.’
 
-Committees, of *Sureté* or *Salut*, have raised themselves
-      “*à la hauteur*, to the height of circumstances.” Let all mortals
-      raise themselves *à la hauteur*. Let the Forty-four thousand
-      Sections and their Revolutionary Committees stir every fibre of the
-      Republic; and every Frenchman feel that he is to do or die. They are the
-      life-circulation of Jacobinism, these Sections and Committees: Danton,
-      through the organ of Barrère and *Salut Public*, gets decreed, That
-      there be in Paris, by law, two meetings of Section weekly; also, that the
-      Poorer Citizen be *paid* for attending, and have his day’s-wages of
-      Forty Sous.[^677] This is the celebrated “Law of the Forty
-      Sous;” fiercely stimulant to Sansculottism, to the life-circulation of
-      Jacobinism.
+Committees, of *Sureté* or *Salut*, have raised themselves “*à la hauteur*, to the height of circumstances.” Let all mortals raise themselves *à la hauteur*. Let the Forty-four thousand Sections and their Revolutionary Committees stir every fibre of the Republic; and every Frenchman feel that he is to do or die. They are the life-circulation of Jacobinism, these Sections and Committees: Danton, through the organ of Barrère and *Salut Public*, gets decreed, That there be in Paris, by law, two meetings of Section weekly; also, that the Poorer Citizen be *paid* for attending, and have his day’s-wages of Forty Sous.[^677] This is the celebrated “Law of the Forty Sous;” fiercely stimulant to Sansculottism, to the life-circulation of Jacobinism.
 
-On the twenty-third of August, Committee of Public Salvation, as usual
-      through Barrère, had promulgated, in words not unworthy of remembering,
-      their Report, which is soon made into a Law, of *Levy in Mass*. “All
-      France, and whatsoever it contains of men or resources, is put under
-      requisition,” says Barrère; really in Tyrtæan words, the best we know of
-      his. “The Republic is one vast besieged city.” Two hundred and fifty
-      Forges shall, in these days, be set up in the Luxembourg Garden, and
-      round the outer wall of the Tuileries; to make gun-barrels; in sight of
-      Earth and Heaven! From all hamlets, towards their Departmental Town; from
-      all their Departmental Towns, towards the appointed Camp and seat of war,
-      the Sons of Freedom shall march; their banner is to bear: “*Le Peuple
-      Français debout contres les Tyrans*, The French People risen against
-      Tyrants.” “The young men shall go to the battle; it is their task to
-      conquer: the married men shall forge arms, transport baggage and
-      artillery; provide subsistence: the women shall work at soldiers’
-      clothes, make tents; serve in the hospitals. The children shall scrape
-      old-linen into surgeon’s-lint: the aged men shall have themselves carried
-      into public places; and there, by their words, excite the courage of the
-      young; preach hatred to Kings and unity to the Republic.”[^678] Tyrtæan words, which tingle through all
-      French hearts.
+On the twenty-third of August, Committee of Public Salvation, as usual through Barrère, had promulgated, in words not unworthy of remembering, their Report, which is soon made into a Law, of *Levy in Mass*. “All France, and whatsoever it contains of men or resources, is put under requisition,” says Barrère; really in Tyrtæan words, the best we know of his. “The Republic is one vast besieged city.” Two hundred and fifty Forges shall, in these days, be set up in the Luxembourg Garden, and round the outer wall of the Tuileries; to make gun-barrels; in sight of Earth and Heaven! From all hamlets, towards their Departmental Town; from all their Departmental Towns, towards the appointed Camp and seat of war, the Sons of Freedom shall march; their banner is to bear: “*Le Peuple Français debout contres les Tyrans*, The French People risen against Tyrants.” “The young men shall go to the battle; it is their task to conquer: the married men shall forge arms, transport baggage and artillery; provide subsistence: the women shall work at soldiers’ clothes, make tents; serve in the hospitals. The children shall scrape old-linen into surgeon’s-lint: the aged men shall have themselves carried into public places; and there, by their words, excite the courage of the young; preach hatred to Kings and unity to the Republic.”[^678] Tyrtæan words, which tingle through all French hearts.
 
-In this humour, then, since no other serves, will France rush against its
-      enemies. Headlong, reckoning no cost or consequence; heeding no law or
-      rule but that supreme law, Salvation of the People! The weapons are all
-      the iron that is in France; the strength is that of all the men, women
-      and children that are in France. There, in their two hundred and fifty
-      shed-smithies, in Garden of Luxembourg or Tuileries, let them forge
-      gun-barrels, in sight of Heaven and Earth.
+In this humour, then, since no other serves, will France rush against its enemies. Headlong, reckoning no cost or consequence; heeding no law or rule but that supreme law, Salvation of the People! The weapons are all the iron that is in France; the strength is that of all the men, women and children that are in France. There, in their two hundred and fifty shed-smithies, in Garden of Luxembourg or Tuileries, let them forge gun-barrels, in sight of Heaven and Earth.
 
-Nor with heroic daring against the Foreign foe, can black vengeance
-      against the Domestic be wanting. Life-circulation of the Revolutionary
-      Committees being quickened by that *Law of the Forty Sous*, Deputy
-      Merlin, not the Thionviller, whom we saw ride out of Mentz, but Merlin of
-      Douai, named subsequently Merlin *Suspect*,—comes, about a
-      week after, with his world-famous *Law of the Suspect:* ordering all
-      Sections, by their Committees, instantly to arrest all Persons Suspect;
-      and explaining withal who the Arrestable and Suspect specially are. ‘Are
-      Suspect,’ says he, ‘all who by their actions, by their connexions,
-      speakings, writings have’—in short become Suspect.[^679] Nay Chaumette, illuminating the matter
-      still further, in his Municipal Placards and Proclamations, will bring it
-      about that you may almost recognise a Suspect on the streets, and clutch
-      him there,—off to Committee, and Prison. Watch well your words,
-      watch well your looks: if Suspect of nothing else, you may grow, as came
-      to be a saying, “Suspect of being Suspect!” For are we not in a State of
-      Revolution?
+Nor with heroic daring against the Foreign foe, can black vengeance against the Domestic be wanting. Life-circulation of the Revolutionary Committees being quickened by that *Law of the Forty Sous*, Deputy Merlin, not the Thionviller, whom we saw ride out of Mentz, but Merlin of Douai, named subsequently Merlin *Suspect*,—comes, about a week after, with his world-famous *Law of the Suspect:* ordering all Sections, by their Committees, instantly to arrest all Persons Suspect; and explaining withal who the Arrestable and Suspect specially are. ‘Are Suspect,’ says he, ‘all who by their actions, by their connexions, speakings, writings have’—in short become Suspect.[^679] Nay Chaumette, illuminating the matter still further, in his Municipal Placards and Proclamations, will bring it about that you may almost recognise a Suspect on the streets, and clutch him there,—off to Committee, and Prison. Watch well your words, watch well your looks: if Suspect of nothing else, you may grow, as came to be a saying, “Suspect of being Suspect!” For are we not in a State of Revolution?
 
-No frightfuller Law ever ruled in a Nation of men. All Prisons and Houses
-      of Arrest in French land are getting crowded to the ridge-tile:
-      Forty-four thousand Committees, like as many companies of reapers or
-      gleaners, gleaning France, are gathering their harvest, and storing it in
-      these Houses. Harvest of Aristocrat tares! Nay, lest the Forty-four
-      thousand, each on its own harvest-field, prove insufficient, we are to
-      have an ambulant “Revolutionary Army:” six thousand strong, under right
-      captains, this shall perambulate the country at large, and strike in
-      wherever it finds such harvest-work slack. So have Municipality and
-      Mother Society petitioned; so has Convention decreed.[^680] Let Aristocrats, Federalists, Monsieurs
-      vanish, and all men tremble: “The Soil of Liberty shall be
-      purged,”—with a vengeance!
+No frightfuller Law ever ruled in a Nation of men. All Prisons and Houses of Arrest in French land are getting crowded to the ridge-tile: Forty-four thousand Committees, like as many companies of reapers or gleaners, gleaning France, are gathering their harvest, and storing it in these Houses. Harvest of Aristocrat tares! Nay, lest the Forty-four thousand, each on its own harvest-field, prove insufficient, we are to have an ambulant “Revolutionary Army:” six thousand strong, under right captains, this shall perambulate the country at large, and strike in wherever it finds such harvest-work slack. So have Municipality and Mother Society petitioned; so has Convention decreed.[^680] Let Aristocrats, Federalists, Monsieurs vanish, and all men tremble: “The Soil of Liberty shall be purged,”—with a vengeance!
 
-Neither hitherto has the Revolutionary Tribunal been keeping holyday.
-      Blanchelande, for losing Saint-Domingo; “Conspirators of Orleans,” for
-      “assassinating,” for assaulting the sacred Deputy Leonard-Bourdon: these
-      with many Nameless, to whom life was sweet, have died. Daily the great
-      Guillotine has its due. Like a black Spectre, daily at eventide, glides
-      the Death-tumbril through the variegated throng of things. The variegated
-      street shudders at it, for the moment; next moment forgets it: The
-      Aristocrats! They were guilty against the Republic; their death, were it
-      only that their goods are confiscated, will be useful to the Republic;
-      *Vive la République!*
+Neither hitherto has the Revolutionary Tribunal been keeping holyday. Blanchelande, for losing Saint-Domingo; “Conspirators of Orleans,” for “assassinating,” for assaulting the sacred Deputy Leonard-Bourdon: these with many Nameless, to whom life was sweet, have died. Daily the great Guillotine has its due. Like a black Spectre, daily at eventide, glides the Death-tumbril through the variegated throng of things. The variegated street shudders at it, for the moment; next moment forgets it: The Aristocrats! They were guilty against the Republic; their death, were it only that their goods are confiscated, will be useful to the Republic; *Vive la République!*
 
-In the last days of August, fell a notabler head: General Custine’s.
-      Custine was accused of harshness, of unskilfulness, perfidiousness;
-      accused of many things: found guilty, we may say, of one thing,
-      unsuccessfulness. Hearing his unexpected Sentence, “Custine fell down
-      before the Crucifix,” silent for the space of two hours: he fared, with
-      moist eyes and a book of prayer, towards the Place de la Révolution;
-      glanced upwards at the clear suspended axe; then mounted swiftly aloft,[^681] swiftly was struck away from the lists of
-      the Living. He had fought in America; he was a proud, brave man; and his
-      fortune led him *hither*.
+In the last days of August, fell a notabler head: General Custine’s. Custine was accused of harshness, of unskilfulness, perfidiousness; accused of many things: found guilty, we may say, of one thing, unsuccessfulness. Hearing his unexpected Sentence, “Custine fell down before the Crucifix,” silent for the space of two hours: he fared, with moist eyes and a book of prayer, towards the Place de la Révolution; glanced upwards at the clear suspended axe; then mounted swiftly aloft,[^681] swiftly was struck away from the lists of the Living. He had fought in America; he was a proud, brave man; and his fortune led him *hither*.
 
-On the 2nd of this same month, at three in the morning, a vehicle rolled
-      off, with closed blinds, from the Temple to the Conciergerie. Within it
-      were two Municipals; and Marie-Antoinette, once Queen of France! There in
-      that Conciergerie, in ignominious dreary cell, she, cut off from
-      children, kindred, friend and hope, sits long weeks; expecting when the
-      end will be.[^682]
+On the 2nd of this same month, at three in the morning, a vehicle rolled off, with closed blinds, from the Temple to the Conciergerie. Within it were two Municipals; and Marie-Antoinette, once Queen of France! There in that Conciergerie, in ignominious dreary cell, she, cut off from children, kindred, friend and hope, sits long weeks; expecting when the end will be.[^682]
 
-The Guillotine, we find, gets always a quicker motion, as other things
-      are quickening. The Guillotine, by its speed of going, will give index of
-      the general velocity of the Republic. The clanking of its huge axe,
-      rising and falling there, in horrid systole-diastole, is portion of the
-      whole enormous Life-movement and pulsation of the Sansculottic
-      System!—“Orléans Conspirators” and Assaulters had to die, in spite
-      of much weeping and entreating; so sacred is the person of a Deputy. Yet
-      the sacred can become desecrated: your very Deputy is not greater than
-      the Guillotine. Poor Deputy Journalist Gorsas: we saw him hide at Rennes,
-      when the Calvados War burnt priming. He stole afterwards, in August, to
-      Paris; lurked several weeks about the Palais *ci-devant* Royal; was
-      seen there, one day; was clutched, identified, and without ceremony,
-      being already “out of the Law,” was sent to the Place de la Révolution.
-      He died, recommending his wife and children to the pity of the Republic.
-      It is the ninth day of October 1793. Gorsas is the first Deputy that dies
-      on the scaffold; he will not be the last.
+The Guillotine, we find, gets always a quicker motion, as other things are quickening. The Guillotine, by its speed of going, will give index of the general velocity of the Republic. The clanking of its huge axe, rising and falling there, in horrid systole-diastole, is portion of the whole enormous Life-movement and pulsation of the Sansculottic System!—“Orléans Conspirators” and Assaulters had to die, in spite of much weeping and entreating; so sacred is the person of a Deputy. Yet the sacred can become desecrated: your very Deputy is not greater than the Guillotine. Poor Deputy Journalist Gorsas: we saw him hide at Rennes, when the Calvados War burnt priming. He stole afterwards, in August, to Paris; lurked several weeks about the Palais *ci-devant* Royal; was seen there, one day; was clutched, identified, and without ceremony, being already “out of the Law,” was sent to the Place de la Révolution. He died, recommending his wife and children to the pity of the Republic. It is the ninth day of October 1793. Gorsas is the first Deputy that dies on the scaffold; he will not be the last.
 
-Ex-Mayor Bailly is in prison; Ex-Procureur Manuel. Brissot and our poor
-      Arrested Girondins have become Incarcerated Indicted Girondins; universal
-      Jacobinism clamouring for their punishment. Duperret’s Seals are
-      *broken!* Those Seventy-three Secret Protesters, suddenly one day,
-      are reported upon, are decreed accused; the Convention-doors being
-      “previously shut,” that none implicated might escape. They were marched,
-      in a very rough manner, to Prison that evening. Happy those of them who
-      chanced to be absent! Condorcet has vanished into darkness; perhaps, like
-      Rabaut, sits between two walls, in the house of a friend.
-
-
----
-
-## Footnotes
+Ex-Mayor Bailly is in prison; Ex-Procureur Manuel. Brissot and our poor Arrested Girondins have become Incarcerated Indicted Girondins; universal Jacobinism clamouring for their punishment. Duperret’s Seals are *broken!* Those Seventy-three Secret Protesters, suddenly one day, are reported upon, are decreed accused; the Convention-doors being “previously shut,” that none implicated might escape. They were marched, in a very rough manner, to Prison that evening. Happy those of them who chanced to be absent! Condorcet has vanished into darkness; perhaps, like Rabaut, sits between two walls, in the house of a friend.
 
 [^677]: Moniteur , Séance du 5 Septembre, 1793.
-
 [^678]: Débats , Séance du 23 Août 1793.
-
 [^679]: Moniteur , Séance du 17 Septembre 1793.
-
 [^680]: Moniteur , Séances du 5, 9, 11 Septembre.
-
 [^681]: Deux Amis , xi. 148-188.
-
 [^682]: See Mémoires particuliers de la Captivité à la Tour du Temple , by the

@@ -1,261 +1,66 @@
 # A Trilogy.
 
-As all Delineation, in these ages, were it never so Epic, “speaking
-      itself and not singing itself,” must either found on Belief and provable
-      Fact, or have no foundation at all (nor except as floating cobweb any
-      existence at all),—the Reader will perhaps prefer to take a glance
-      with the very eyes of eye-witnesses; and see, in that way, for himself,
-      how it was. Brave Jourgniac, innocent Abbé Sicard, judicious Advocate
-      Maton, these, greatly compressing themselves, shall speak, each an
-      instant. Jourgniac’s *Agony of Thirty-eight Hours* went through
-      “above a hundred editions,” though intrinsically a poor work. Some
-      portion of it may here go through above the hundred-and-first, for want
-      of a better.
+As all Delineation, in these ages, were it never so Epic, “speaking itself and not singing itself,” must either found on Belief and provable Fact, or have no foundation at all (nor except as floating cobweb any existence at all),—the Reader will perhaps prefer to take a glance with the very eyes of eye-witnesses; and see, in that way, for himself, how it was. Brave Jourgniac, innocent Abbé Sicard, judicious Advocate Maton, these, greatly compressing themselves, shall speak, each an instant. Jourgniac’s *Agony of Thirty-eight Hours* went through “above a hundred editions,” though intrinsically a poor work. Some portion of it may here go through above the hundred-and-first, for want of a better.
 
-“*Towards seven o’clock*” (Sunday night, at the Abbaye; for
-      Jourgniac goes by dates): “We saw two men enter, their hands bloody and
-      armed with sabres; a turnkey, with a torch, lighted them; he pointed to
-      the bed of the unfortunate Swiss, Reding. Reding spoke with a dying
-      voice. One of them paused; but the other cried *Allons donc;* lifted
-      the unfortunate man; carried him out on his back to the street. He was
-      massacred there.
+“*Towards seven o’clock*” (Sunday night, at the Abbaye; for Jourgniac goes by dates): “We saw two men enter, their hands bloody and armed with sabres; a turnkey, with a torch, lighted them; he pointed to the bed of the unfortunate Swiss, Reding. Reding spoke with a dying voice. One of them paused; but the other cried *Allons donc;* lifted the unfortunate man; carried him out on his back to the street. He was massacred there.
 
-“We all looked at one another in silence, we clasped each other’s hands.
-      Motionless, with fixed eyes, we gazed on the pavement of our prison; on
-      which lay the moonlight, checkered with the triple stancheons of our
-      windows.
+“We all looked at one another in silence, we clasped each other’s hands. Motionless, with fixed eyes, we gazed on the pavement of our prison; on which lay the moonlight, checkered with the triple stancheons of our windows.
 
-“*Three in the morning:* They were breaking-in one of the
-      prison-doors. We at first thought they were coming to kill us in our
-      room; but heard, by voices on the staircase, that it was a room where
-      some Prisoners had barricaded themselves. They were all butchered there,
-      as we shortly gathered.
+“*Three in the morning:* They were breaking-in one of the prison-doors. We at first thought they were coming to kill us in our room; but heard, by voices on the staircase, that it was a room where some Prisoners had barricaded themselves. They were all butchered there, as we shortly gathered.
 
-“*Ten o’clock:* The Abbé Lenfant and the Abbé de Chapt-Rastignac
-      appeared in the pulpit of the Chapel, which was our prison; they had
-      entered by a door from the stairs. They said to us that our end was at
-      hand; that we must compose ourselves, and receive their last blessing. An
-      electric movement, not to be defined, threw us all on our knees, and we
-      received it. These two whitehaired old men, blessing us from their place
-      above; death hovering over our heads, on all hands environing us; the
-      moment is never to be forgotten. Half an hour after, they were both
-      massacred, and we heard their cries.”[^534]—Thus
-      Jourgniac in his *Agony* in the Abbaye.
+“*Ten o’clock:* The Abbé Lenfant and the Abbé de Chapt-Rastignac appeared in the pulpit of the Chapel, which was our prison; they had entered by a door from the stairs. They said to us that our end was at hand; that we must compose ourselves, and receive their last blessing. An electric movement, not to be defined, threw us all on our knees, and we received it. These two whitehaired old men, blessing us from their place above; death hovering over our heads, on all hands environing us; the moment is never to be forgotten. Half an hour after, they were both massacred, and we heard their cries.”[^534]—Thus Jourgniac in his *Agony* in the Abbaye.
 
-But now let the good Maton speak, what he, over in La Force, in the same
-      hours, is suffering and witnessing. This *Résurrection* by him is
-      greatly the best, the least theatrical of these Pamphlets; and stands
-      testing by documents:
+But now let the good Maton speak, what he, over in La Force, in the same hours, is suffering and witnessing. This *Résurrection* by him is greatly the best, the least theatrical of these Pamphlets; and stands testing by documents:
 
-“Towards seven o’clock,” on Sunday night, “prisoners were called
-      frequently, and they did not reappear. Each of us reasoned in his own
-      way, on this singularity: but our ideas became calm, as we persuaded
-      ourselves that the Memorial I had drawn up for the National Assembly was
-      producing effect.
+“Towards seven o’clock,” on Sunday night, “prisoners were called frequently, and they did not reappear. Each of us reasoned in his own way, on this singularity: but our ideas became calm, as we persuaded ourselves that the Memorial I had drawn up for the National Assembly was producing effect.
 
-“At one in the morning, the grate which led to our quarter opened anew.
-      Four men in uniform, each with a drawn sabre and blazing torch, came up
-      to our corridor, preceded by a turnkey; and entered an apartment close to
-      ours, to investigate a box there, which we heard them break up. This
-      done, they stept into the gallery, and questioned the man Cuissa, to know
-      where Lamotte (Necklace’s Widower) was. Lamotte, they said, had some
-      months ago, under pretext of a treasure he knew of, swindled a sum of
-      three-hundred livres from one of them, inviting him to dinner for that
-      purpose. The wretched Cuissa, now in their hands, who indeed lost his
-      life this night, answered trembling, That he remembered the fact well,
-      but could not tell what was become of Lamotte. Determined to find Lamotte
-      and confront him with Cuissa, they rummaged, along with this latter,
-      through various other apartments; but without effect, for we heard them
-      say: ‘Come search among the corpses then: for, *nom de Dieu!* we
-      must find where he is.’
+“At one in the morning, the grate which led to our quarter opened anew. Four men in uniform, each with a drawn sabre and blazing torch, came up to our corridor, preceded by a turnkey; and entered an apartment close to ours, to investigate a box there, which we heard them break up. This done, they stept into the gallery, and questioned the man Cuissa, to know where Lamotte (Necklace’s Widower) was. Lamotte, they said, had some months ago, under pretext of a treasure he knew of, swindled a sum of three-hundred livres from one of them, inviting him to dinner for that purpose. The wretched Cuissa, now in their hands, who indeed lost his life this night, answered trembling, That he remembered the fact well, but could not tell what was become of Lamotte. Determined to find Lamotte and confront him with Cuissa, they rummaged, along with this latter, through various other apartments; but without effect, for we heard them say: ‘Come search among the corpses then: for, *nom de Dieu!* we must find where he is.’
 
-“At this time, I heard Louis Bardy, the Abbé Bardy’s name called: he was
-      brought out; and directly massacred, as I learnt. He had been accused,
-      along with his concubine, five or six years before, of having murdered
-      and cut in pieces his own Brother, Auditor of the *Chambre des
-      Comptes* of Montpelier; but had by his subtlety, his dexterity, nay
-      his eloquence, outwitted the judges, and escaped.
+“At this time, I heard Louis Bardy, the Abbé Bardy’s name called: he was brought out; and directly massacred, as I learnt. He had been accused, along with his concubine, five or six years before, of having murdered and cut in pieces his own Brother, Auditor of the *Chambre des Comptes* of Montpelier; but had by his subtlety, his dexterity, nay his eloquence, outwitted the judges, and escaped.
 
-“One may fancy what terror these words, ‘Come search among the corpses
-      then,’ had thrown me into. I saw nothing for it now but resigning myself
-      to die. I wrote my last-will; concluding it by a petition and adjuration,
-      that the paper should be sent to its address. Scarcely had I quitted the
-      pen, when there came two other men in uniform; one of them, whose arm and
-      sleeve up to the very shoulder, as well as the sabre, were covered with
-      blood, said, He was as weary as a hodman that had been beating plaster.
+“One may fancy what terror these words, ‘Come search among the corpses then,’ had thrown me into. I saw nothing for it now but resigning myself to die. I wrote my last-will; concluding it by a petition and adjuration, that the paper should be sent to its address. Scarcely had I quitted the pen, when there came two other men in uniform; one of them, whose arm and sleeve up to the very shoulder, as well as the sabre, were covered with blood, said, He was as weary as a hodman that had been beating plaster.
 
-“Baudin de la Chenaye was called; sixty years of virtues could not save
-      him. They said, ‘*À l’Abbaye:*’ he passed the fatal outer-gate; gave
-      a cry of terror, at sight of the heaped corpses; covered his eyes with
-      his hands, and died of innumerable wounds. At every new opening of the
-      grate, I thought I should hear my own name called, and see Rossignol
-      enter.
+“Baudin de la Chenaye was called; sixty years of virtues could not save him. They said, ‘*À l’Abbaye:*’ he passed the fatal outer-gate; gave a cry of terror, at sight of the heaped corpses; covered his eyes with his hands, and died of innumerable wounds. At every new opening of the grate, I thought I should hear my own name called, and see Rossignol enter.
 
-“I flung off my nightgown and cap; I put on a coarse unwashed shirt, a
-      worn frock without waistcoat, an old round hat; these things I had sent
-      for, some days ago, in the fear of what might happen.
+“I flung off my nightgown and cap; I put on a coarse unwashed shirt, a worn frock without waistcoat, an old round hat; these things I had sent for, some days ago, in the fear of what might happen.
 
-“The rooms of this corridor had been all emptied but ours. We were four
-      together; whom they seemed to have forgotten: we addressed our prayers in
-      common to the Eternal to be delivered from this peril.
+“The rooms of this corridor had been all emptied but ours. We were four together; whom they seemed to have forgotten: we addressed our prayers in common to the Eternal to be delivered from this peril.
 
-“Baptiste the turnkey came up by himself, to see us. I took him by the
-      hands; I conjured him to save us; promised him a hundred louis, if he
-      would conduct me home. A noise coming from the grates made him hastily
-      withdraw.
+“Baptiste the turnkey came up by himself, to see us. I took him by the hands; I conjured him to save us; promised him a hundred louis, if he would conduct me home. A noise coming from the grates made him hastily withdraw.
 
-“It was the noise of some dozen or fifteen men, armed to the teeth; as
-      we, lying flat to escape being seen, could see from our windows: ‘Up
-      stairs!’ said they: ‘Let not one remain.’ I took out my penknife; I
-      considered where I should strike myself,”—but reflected “that the
-      blade was too short,” and also “on religion.”
+“It was the noise of some dozen or fifteen men, armed to the teeth; as we, lying flat to escape being seen, could see from our windows: ‘Up stairs!’ said they: ‘Let not one remain.’ I took out my penknife; I considered where I should strike myself,”—but reflected “that the blade was too short,” and also “on religion.”
 
-Finally, however, between seven and eight o’clock in the morning, enter
-      four men with bludgeons and sabres!—“to one of whom Gerard my
-      comrade whispered, earnestly, apart. During their colloquy I searched
-      every where for shoes, that I might lay off the Advocate pumps
-      (*pantoufles de Palais*) I had on,” but could find
-      none.—“Constant, called le Sauvage, Gerard, and a third whose name
-      escapes me, they let clear off: as for me, four sabres were crossed over
-      my breast, and they led me down. I was brought to their bar; to the
-      Personage with the scarf, who sat as judge there. He was a lame man, of
-      tall lank stature. He recognised me on the streets, and spoke to me seven
-      months after. I have been assured that he was son of a retired attorney,
-      and named Chepy. Crossing the Court called *Des Nourrices*, I saw
-      Manuel haranguing in tricolor scarf.” The trial, as we see, ends in
-      acquittal and *resurrection*.[^535]
+Finally, however, between seven and eight o’clock in the morning, enter four men with bludgeons and sabres!—“to one of whom Gerard my comrade whispered, earnestly, apart. During their colloquy I searched every where for shoes, that I might lay off the Advocate pumps (*pantoufles de Palais*) I had on,” but could find none.—“Constant, called le Sauvage, Gerard, and a third whose name escapes me, they let clear off: as for me, four sabres were crossed over my breast, and they led me down. I was brought to their bar; to the Personage with the scarf, who sat as judge there. He was a lame man, of tall lank stature. He recognised me on the streets, and spoke to me seven months after. I have been assured that he was son of a retired attorney, and named Chepy. Crossing the Court called *Des Nourrices*, I saw Manuel haranguing in tricolor scarf.” The trial, as we see, ends in acquittal and *resurrection*.[^535]
 
-Poor Sicard, from the *violon* of the Abbaye, shall say but a few
-      words; true-looking, though tremulous. Towards three in the morning, the
-      killers bethink them of this little *violon;* and knock from the
-      court. “I tapped gently, trembling lest the murderers might hear, on the
-      opposite door, where the Section Committee was sitting: they answered
-      gruffly that they had no key. There were three of us in this
-      *violon;* my companions thought they perceived a kind of loft
-      overhead. But it was very high; only one of us could reach it, by
-      mounting on the shoulders of both the others. One of them said to me,
-      that my life was usefuller than theirs: I resisted, they insisted: no
-      denial! I fling myself on the neck of these two deliverers; never was
-      scene more touching. I mount on the shoulders of the first, then on those
-      of the second, finally on the loft; and address to my two comrades the
-      expression of a soul overwhelmed with natural emotions.[^536]
+Poor Sicard, from the *violon* of the Abbaye, shall say but a few words; true-looking, though tremulous. Towards three in the morning, the killers bethink them of this little *violon;* and knock from the court. “I tapped gently, trembling lest the murderers might hear, on the opposite door, where the Section Committee was sitting: they answered gruffly that they had no key. There were three of us in this *violon;* my companions thought they perceived a kind of loft overhead. But it was very high; only one of us could reach it, by mounting on the shoulders of both the others. One of them said to me, that my life was usefuller than theirs: I resisted, they insisted: no denial! I fling myself on the neck of these two deliverers; never was scene more touching. I mount on the shoulders of the first, then on those of the second, finally on the loft; and address to my two comrades the expression of a soul overwhelmed with natural emotions.[^536]
 
-The two generous companions, we rejoice to find, did not perish. But it
-      is time that Jourgniac de Saint-Méard should speak his last words, and
-      end this singular trilogy. The night had become day; and the day has
-      again become night. Jourgniac, worn down with uttermost agitation, has
-      fallen asleep, and had a cheering dream: he has also contrived to make
-      acquaintance with one of the volunteer bailiffs, and spoken in native
-      Provençal with him. On Tuesday, about one in the morning, his
-      *Agony* is reaching its crisis.
+The two generous companions, we rejoice to find, did not perish. But it is time that Jourgniac de Saint-Méard should speak his last words, and end this singular trilogy. The night had become day; and the day has again become night. Jourgniac, worn down with uttermost agitation, has fallen asleep, and had a cheering dream: he has also contrived to make acquaintance with one of the volunteer bailiffs, and spoken in native Provençal with him. On Tuesday, about one in the morning, his *Agony* is reaching its crisis.
 
-“By the glare of two torches, I now descried the terrible tribunal, where
-      lay my life or my death. The President, in grey coats, with a sabre at
-      his side, stood leaning with his hands against a table, on which were
-      papers, an inkstand, tobacco-pipes and bottles. Some ten persons were
-      around, seated or standing; two of whom had jackets and aprons: others
-      were sleeping stretched on benches. Two men, in bloody shirts, guarded
-      the door of the place; an old turnkey had his hand on the lock. In front
-      of the President, three men held a Prisoner, who might be about sixty”
-      (or seventy: he was old Marshal Maillé, of the Tuileries and August
-      Tenth). “They stationed me in a corner; my guards crossed their sabres on
-      my breast. I looked on all sides for my Provençal: two National Guards,
-      one of them drunk, presented some appeal from the Section of Croix Rouge
-      in favour of the Prisoner; the Man in Grey answered: ‘They are useless,
-      these appeals for traitors.’ Then the Prisoner exclaimed: ‘It is
-      frightful; your judgment is a murder.’ The President answered; ‘My hands
-      are washed of it; take M. Maillé away.’ They drove him into the street;
-      where, through the opening of the door, I saw him massacred.
+“By the glare of two torches, I now descried the terrible tribunal, where lay my life or my death. The President, in grey coats, with a sabre at his side, stood leaning with his hands against a table, on which were papers, an inkstand, tobacco-pipes and bottles. Some ten persons were around, seated or standing; two of whom had jackets and aprons: others were sleeping stretched on benches. Two men, in bloody shirts, guarded the door of the place; an old turnkey had his hand on the lock. In front of the President, three men held a Prisoner, who might be about sixty” (or seventy: he was old Marshal Maillé, of the Tuileries and August Tenth). “They stationed me in a corner; my guards crossed their sabres on my breast. I looked on all sides for my Provençal: two National Guards, one of them drunk, presented some appeal from the Section of Croix Rouge in favour of the Prisoner; the Man in Grey answered: ‘They are useless, these appeals for traitors.’ Then the Prisoner exclaimed: ‘It is frightful; your judgment is a murder.’ The President answered; ‘My hands are washed of it; take M. Maillé away.’ They drove him into the street; where, through the opening of the door, I saw him massacred.
 
-“The President sat down to write; registering, I suppose, the name of
-      this one whom they had finished; then I heard him say: ‘Another, *À un
-      autre!*’
+“The President sat down to write; registering, I suppose, the name of this one whom they had finished; then I heard him say: ‘Another, *À un autre!*’
 
-“Behold me then haled before this swift and bloody judgment-bar, where
-      the best protection was to have no protection, and all resources of
-      ingenuity became null if they were not founded on truth. Two of my guards
-      held me each by a hand, the third by the collar of my coat. ‘Your name,
-      your profession?’ said the President. ‘The smallest lie ruins you,’ added
-      one of the judges,—‘My name is Jourgniac Saint-Méard; I have
-      served, as an officer, twenty years: and I appear at your tribunal with
-      the assurance of an innocent man, who therefore will not lie.’—‘We
-      shall see that,’ said the President: ‘Do you know why you are
-      arrested?’—‘Yes, Monsieur le President; I am accused of editing the
-      Journal *De la Cour et de la Ville*. But I hope to prove the
-      falsity’”—
+“Behold me then haled before this swift and bloody judgment-bar, where the best protection was to have no protection, and all resources of ingenuity became null if they were not founded on truth. Two of my guards held me each by a hand, the third by the collar of my coat. ‘Your name, your profession?’ said the President. ‘The smallest lie ruins you,’ added one of the judges,—‘My name is Jourgniac Saint-Méard; I have served, as an officer, twenty years: and I appear at your tribunal with the assurance of an innocent man, who therefore will not lie.’—‘We shall see that,’ said the President: ‘Do you know why you are arrested?’—‘Yes, Monsieur le President; I am accused of editing the Journal *De la Cour et de la Ville*. But I hope to prove the falsity’”—
 
-But no; Jourgniac’s proof of the falsity, and defence generally, though
-      of excellent result as a defence, is not interesting to read. It is
-      long-winded; there is a loose theatricality in the reporting of it, which
-      does not amount to unveracity, yet which tends that way. We shall suppose
-      him successful, beyond hope, in proving and disproving; and skip
-      largely,—to the catastrophe, almost at two steps.
+But no; Jourgniac’s proof of the falsity, and defence generally, though of excellent result as a defence, is not interesting to read. It is long-winded; there is a loose theatricality in the reporting of it, which does not amount to unveracity, yet which tends that way. We shall suppose him successful, beyond hope, in proving and disproving; and skip largely,—to the catastrophe, almost at two steps.
 
-“‘But after all,’ said one of the Judges, ‘there is no smoke without
-      kindling; tell us why they accuse you of that.’—‘I was about to do
-      so’”—Jourgniac does so; with more and more success.
+“‘But after all,’ said one of the Judges, ‘there is no smoke without kindling; tell us why they accuse you of that.’—‘I was about to do so’”—Jourgniac does so; with more and more success.
 
-“‘Nay,’ continued I, ‘they accuse me even of recruiting for the
-      Emigrants!’ At these words there arose a general murmur. ‘O Messieurs,
-      Messieurs,’ I exclaimed, raising my voice, ‘it is my turn to speak; I beg
-      M. le President to have the kindness to maintain it for me; I never
-      needed it more.’—‘True enough, true enough,’ said almost all the
-      judges with a laugh: ‘Silence!’
+“‘Nay,’ continued I, ‘they accuse me even of recruiting for the Emigrants!’ At these words there arose a general murmur. ‘O Messieurs, Messieurs,’ I exclaimed, raising my voice, ‘it is my turn to speak; I beg M. le President to have the kindness to maintain it for me; I never needed it more.’—‘True enough, true enough,’ said almost all the judges with a laugh: ‘Silence!’
 
-“While they were examining the testimonials I had produced, a new
-      Prisoner was brought in, and placed before the President. ‘It was one
-      Priest more,’ they said, ‘whom they had ferreted out of the Chapelle.’
-      After very few questions: ‘*À la Force!*’ He flung his breviary on
-      the table: was hurled forth, and massacred. I reappeared before the
-      tribunal.
+“While they were examining the testimonials I had produced, a new Prisoner was brought in, and placed before the President. ‘It was one Priest more,’ they said, ‘whom they had ferreted out of the Chapelle.’ After very few questions: ‘*À la Force!*’ He flung his breviary on the table: was hurled forth, and massacred. I reappeared before the tribunal.
 
-“‘You tell us always,’ cried one of the judges, with a tone of
-      impatience, ‘that you are not this, that you are not that: what are you
-      then?’—‘I was an open Royalist.’—There arose a general
-      murmur; which was miraculously appeased by another of the men, who had
-      seemed to take an interest in me: ‘We are not here to judge opinions,’
-      said he, ‘but to judge the results of them.’ Could Rousseau and Voltaire
-      both in one, pleading for me, have said better?—‘Yes, Messieurs,’
-      cried I, ‘always till the Tenth of August, I was an open Royalist. Ever
-      since the Tenth of August that cause has been finished. I am a Frenchman,
-      true to my country. I was always a man of honour.’
+“‘You tell us always,’ cried one of the judges, with a tone of impatience, ‘that you are not this, that you are not that: what are you then?’—‘I was an open Royalist.’—There arose a general murmur; which was miraculously appeased by another of the men, who had seemed to take an interest in me: ‘We are not here to judge opinions,’ said he, ‘but to judge the results of them.’ Could Rousseau and Voltaire both in one, pleading for me, have said better?—‘Yes, Messieurs,’ cried I, ‘always till the Tenth of August, I was an open Royalist. Ever since the Tenth of August that cause has been finished. I am a Frenchman, true to my country. I was always a man of honour.’
 
-“‘My soldiers never distrusted me. Nay, two days before that business of
-      Nanci, when their suspicion of their officers was at its height, they
-      chose me for commander, to lead them to Lunéville, to get back the
-      prisoners of the Regiment Mestre-de-Camp, and seize General Malseigne.’”
-      Which fact there is, most luckily, an individual present who by a certain
-      token can confirm.
+“‘My soldiers never distrusted me. Nay, two days before that business of Nanci, when their suspicion of their officers was at its height, they chose me for commander, to lead them to Lunéville, to get back the prisoners of the Regiment Mestre-de-Camp, and seize General Malseigne.’” Which fact there is, most luckily, an individual present who by a certain token can confirm.
 
-“The President, this cross-questioning being over, took off his hat and
-      said: ‘I see nothing to suspect in this man; I am for granting him his
-      liberty. Is that your vote?’ To which all the judges answered: ‘*Oui,
-      oui;* it is just!’”
+“The President, this cross-questioning being over, took off his hat and said: ‘I see nothing to suspect in this man; I am for granting him his liberty. Is that your vote?’ To which all the judges answered: ‘*Oui, oui;* it is just!’”
 
-And there arose vivats within doors and without; “escort of three,” amid
-      shoutings and embracings: thus Jourgniac escaped from jury-trial and the
-      jaws of death.[^537] Maton and Sicard did, either by trial, and
-      no bill found, lank President Chepy finding “absolutely nothing;” or else
-      by evasion, and new favour of Moton the brave watchmaker, likewise
-      escape; and were embraced, and wept over; weeping in return, as they well
-      might.
+And there arose vivats within doors and without; “escort of three,” amid shoutings and embracings: thus Jourgniac escaped from jury-trial and the jaws of death.[^537] Maton and Sicard did, either by trial, and no bill found, lank President Chepy finding “absolutely nothing;” or else by evasion, and new favour of Moton the brave watchmaker, likewise escape; and were embraced, and wept over; weeping in return, as they well might.
 
-Thus they three, in wondrous trilogy, or triple soliloquy; uttering
-      simultaneously, through the dread night-watches, their
-      Night-thoughts,—grown audible to us! They Three are become audible:
-      but the other “Thousand and Eighty-nine, of whom Two Hundred and Two were
-      Priests,” who also had Night-thoughts, remain inaudible; choked for ever
-      in black Death. Heard only of President Chepy and the Man in Grey!—
-
-
----
-
-## Footnotes
+Thus they three, in wondrous trilogy, or triple soliloquy; uttering simultaneously, through the dread night-watches, their Night-thoughts,—grown audible to us! They Three are become audible: but the other “Thousand and Eighty-nine, of whom Two Hundred and Two were Priests,” who also had Night-thoughts, remain inaudible; choked for ever in black Death. Heard only of President Chepy and the Man in Grey!—
 
 [^534]: Jourgniac Saint-Méard, Mon Agonie de Trente-huit heures (reprinted in Hist. Parl. xviii. 103-135).
-
 [^535]: Maton de la Varenne, Ma Résurrection (in Hist. Parl. xviii. 135-156).
-
 [^536]: Abbé Sicard, Relation adressée à un de ses amis (in Hist. Parl. xviii. 98-103).
-
 [^537]: Mon Agonie (ut supra, Hist. Parl. xviii. 128).

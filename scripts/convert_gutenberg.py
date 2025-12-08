@@ -37,7 +37,10 @@ class Chapter:
         
     def add_paragraph(self, text: str):
         """Add a paragraph to the chapter."""
-        text = text.strip()
+        # Normalize whitespace within paragraphs to avoid unwanted indentation
+        # and hard line breaks from the HTML source. Collapse all whitespace
+        # sequences (including newlines) into single spaces, then strip.
+        text = re.sub(r"\s+", " ", text).strip()
         if text:
             self.content_paragraphs.append(text)
     
@@ -48,23 +51,33 @@ class Chapter:
     def to_markdown(self) -> str:
         """Convert chapter to markdown format."""
         lines = []
-        
         # Title as H1
-        lines.append(f"# {self.title}\n")
-        
-        # Content paragraphs
+        lines.append(f"# {self.title}")
+
+        # One blank line after title
+        lines.append("")
+
+        # Content paragraphs (each paragraph separated by one blank line)
         for para in self.content_paragraphs:
-            lines.append(para)
-            lines.append("")  # Blank line between paragraphs
-        
-        # Footnotes section
+            # Ensure no accidental indentation or trailing whitespace
+            p = para.strip()
+            if p:
+                lines.append(p)
+                lines.append("")
+
+        # Footnotes: append as markdown footnote definitions without a header
         if self.footnotes:
-            lines.append("\n---\n")
-            lines.append("## Footnotes\n")
+            # Ensure a single blank line before footnotes
+            if lines and lines[-1] != "":
+                lines.append("")
+
             for num, text in self.footnotes:
-                lines.append(f"[^{num}]: {text}\n")
-        
-        return '\n'.join(lines)
+                # One-line footnote definition. strip text to avoid extra spaces/newlines
+                lines.append(f"[^{num}]: {text.strip()}")
+
+        # Join with single newlines and ensure the file ends with exactly one newline
+        output = '\n'.join(lines).rstrip() + "\n"
+        return output
     
     def get_filename(self) -> str:
         """Generate filename for this chapter."""

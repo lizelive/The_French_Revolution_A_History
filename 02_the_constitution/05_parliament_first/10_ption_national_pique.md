@@ -1,79 +1,16 @@
 # Pétion-National-Pique.
 
-And yet, how, on dark bottomless Cataracts there plays the foolishest
-      fantastic-coloured spray and shadow; hiding the Abyss under vapoury
-      rainbows! Alongside of this discussion as to Austrian-Prussian War, there
-      goes on no less but more vehemently a discussion, Whether the Forty or
-      Two-and-forty Swiss of Château-Vieux shall be liberated from the Brest
-      Gallies? And then, Whether, being liberated, they shall have a public
-      Festival, or only private ones?
+And yet, how, on dark bottomless Cataracts there plays the foolishest fantastic-coloured spray and shadow; hiding the Abyss under vapoury rainbows! Alongside of this discussion as to Austrian-Prussian War, there goes on no less but more vehemently a discussion, Whether the Forty or Two-and-forty Swiss of Château-Vieux shall be liberated from the Brest Gallies? And then, Whether, being liberated, they shall have a public Festival, or only private ones?
 
-Théroigne, as we saw, spoke; and Collot took up the tale. Has not
-      Bouillé’s final display of himself, in that final Night of Spurs, stamped
-      your so-called “Revolt of Nanci” into a “Massacre of Nanci,” for all
-      Patriot judgments? Hateful is that massacre; hateful the
-      Lafayette-Feuillant “public thanks” given for it! For indeed, Jacobin
-      Patriotism and dispersed Feuillantism are now at death-grips; and do
-      fight with all weapons, even with scenic shows. The walls of Paris,
-      accordingly, are covered with Placard and Counter-Placard, on the subject
-      of Forty Swiss blockheads. Journal responds to Journal; Player Collot to
-      Poetaster Roucher; Joseph Chénier the Jacobin, squire of Théroigne, to
-      his Brother Andre the Feuillant; Mayor Pétion to Dupont de Nemours: and
-      for the space of two months, there is nowhere peace for the thought of
-      man,—till this thing be settled.
+Théroigne, as we saw, spoke; and Collot took up the tale. Has not Bouillé’s final display of himself, in that final Night of Spurs, stamped your so-called “Revolt of Nanci” into a “Massacre of Nanci,” for all Patriot judgments? Hateful is that massacre; hateful the Lafayette-Feuillant “public thanks” given for it! For indeed, Jacobin Patriotism and dispersed Feuillantism are now at death-grips; and do fight with all weapons, even with scenic shows. The walls of Paris, accordingly, are covered with Placard and Counter-Placard, on the subject of Forty Swiss blockheads. Journal responds to Journal; Player Collot to Poetaster Roucher; Joseph Chénier the Jacobin, squire of Théroigne, to his Brother Andre the Feuillant; Mayor Pétion to Dupont de Nemours: and for the space of two months, there is nowhere peace for the thought of man,—till this thing be settled.
 
-*Gloria in excelsis!* The Forty Swiss are at last got “amnestied.”
-      Rejoice ye Forty: doff your greasy wool Bonnets, which shall become Caps
-      of Liberty. The Brest Daughter-Society welcomes you from on board, with
-      kisses on each cheek: your iron Handcuffs are disputed as Relics of
-      Saints; the Brest Society indeed can have one portion, which it will beat
-      into Pikes, a sort of Sacred Pikes; but the other portion must belong to
-      Paris, and be suspended from the dome there, along with the Flags of the
-      Three Free Peoples! Such a goose is man; and cackles over plush-velvet
-      Grand Monarques and woollen Galley-slaves; over everything and over
-      nothing,—and will cackle with his whole soul merely if others
-      cackle!
+*Gloria in excelsis!* The Forty Swiss are at last got “amnestied.” Rejoice ye Forty: doff your greasy wool Bonnets, which shall become Caps of Liberty. The Brest Daughter-Society welcomes you from on board, with kisses on each cheek: your iron Handcuffs are disputed as Relics of Saints; the Brest Society indeed can have one portion, which it will beat into Pikes, a sort of Sacred Pikes; but the other portion must belong to Paris, and be suspended from the dome there, along with the Flags of the Three Free Peoples! Such a goose is man; and cackles over plush-velvet Grand Monarques and woollen Galley-slaves; over everything and over nothing,—and will cackle with his whole soul merely if others cackle!
 
-On the ninth morning of April, these Forty Swiss blockheads arrive. From
-      Versailles; with *vivats* heaven-high; with the affluence of men and
-      women. To the Townhall we conduct them; nay to the Legislative itself,
-      though not without difficulty. They are harangued, bedinnered,
-      begifted,—the very Court, *not* for conscience” sake,
-      contributing something; and their Public Festival shall be next Sunday.
-      Next Sunday accordingly it is.[^464] They are mounted
-      into a “triumphal Car resembling a ship;” are carted over Paris, with the
-      clang of cymbals and drums, all mortals assisting applausive; carted to
-      the Champ-de-Mars and Fatherland’s Altar; and finally carted, for Time
-      always brings deliverance,—into invisibility for evermore.
+On the ninth morning of April, these Forty Swiss blockheads arrive. From Versailles; with *vivats* heaven-high; with the affluence of men and women. To the Townhall we conduct them; nay to the Legislative itself, though not without difficulty. They are harangued, bedinnered, begifted,—the very Court, *not* for conscience” sake, contributing something; and their Public Festival shall be next Sunday. Next Sunday accordingly it is.[^464] They are mounted into a “triumphal Car resembling a ship;” are carted over Paris, with the clang of cymbals and drums, all mortals assisting applausive; carted to the Champ-de-Mars and Fatherland’s Altar; and finally carted, for Time always brings deliverance,—into invisibility for evermore.
 
-Whereupon dispersed Feuillantism, or that Party which loves Liberty yet
-      not more than Monarchy, will likewise have its Festival: Festival of
-      Simonneau, unfortunate Mayor of Etampes, who died for the Law; most
-      surely for the Law, though Jacobinism disputes; being trampled down with
-      his Red Flag in the riot about grains. At which Festival the Public again
-      assists, *un*applausive: not we.
+Whereupon dispersed Feuillantism, or that Party which loves Liberty yet not more than Monarchy, will likewise have its Festival: Festival of Simonneau, unfortunate Mayor of Etampes, who died for the Law; most surely for the Law, though Jacobinism disputes; being trampled down with his Red Flag in the riot about grains. At which Festival the Public again assists, *un*applausive: not we.
 
-On the whole, Festivals are not wanting; beautiful rainbow-spray when all
-      is now rushing treble-quick towards its Niagara Fall. National repasts
-      there are; countenanced by Mayor Pétion; Saint-Antoine, and the Strong
-      Ones of the Halles defiling through Jacobin Club, ‘their felicity,’
-      according to Santerre, ‘not perfect otherwise;’ singing many-voiced their
-      *ça-ira*, dancing their *ronde patriotique*. Among whom one is
-      glad to discern Saint-Huruge, expressly “in white hat,” the
-      Saint-Christopher of the Carmagnole. Nay a certain *Tambour* or
-      National Drummer, having just been presented with a little daughter,
-      determines to have the new Frenchwoman christened on Fatherland’s Altar
-      then and there. Repast once over, he accordingly has her christened;
-      Fauchet the Te-Deum Bishop acting in chief, Thuriot and honourable
-      persons standing gossips: by the name, Pétion-National-Pique![^465] Does this remarkable Citizeness, now past
-      the meridian of life, still walk the Earth? Or did she die perhaps of
-      teething? Universal History is not indifferent.
-
-
----
-
-## Footnotes
+On the whole, Festivals are not wanting; beautiful rainbow-spray when all is now rushing treble-quick towards its Niagara Fall. National repasts there are; countenanced by Mayor Pétion; Saint-Antoine, and the Strong Ones of the Halles defiling through Jacobin Club, ‘their felicity,’ according to Santerre, ‘not perfect otherwise;’ singing many-voiced their *ça-ira*, dancing their *ronde patriotique*. Among whom one is glad to discern Saint-Huruge, expressly “in white hat,” the Saint-Christopher of the Carmagnole. Nay a certain *Tambour* or National Drummer, having just been presented with a little daughter, determines to have the new Frenchwoman christened on Fatherland’s Altar then and there. Repast once over, he accordingly has her christened; Fauchet the Te-Deum Bishop acting in chief, Thuriot and honourable persons standing gossips: by the name, Pétion-National-Pique![^465] Does this remarkable Citizeness, now past the meridian of life, still walk the Earth? Or did she die perhaps of teething? Universal History is not indifferent.
 
 [^464]: Newspapers of February, March, April, 1792; Iambe d’André Chénier sur la
-
 [^465]: Patriote-Français (Brissot’s Newspaper), in Hist. Parl. xiii. 451.
