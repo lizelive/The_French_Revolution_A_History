@@ -252,6 +252,8 @@ def parse_with_beautifulsoup(html_content: str) -> List[Chapter]:
             
             # Collect content until next chapter
             current_elem = heading.find_next_sibling()
+            chapter_footnote_refs = set()
+            
             while current_elem:
                 # Stop at next heading that might be a chapter/book/volume
                 if current_elem.name in ['h1', 'h2', 'h3', 'h4', 'h5', 'h6']:
@@ -264,12 +266,19 @@ def parse_with_beautifulsoup(html_content: str) -> List[Chapter]:
                     para_text = html_to_markdown(current_elem)
                     if para_text.strip():
                         current_chapter.add_paragraph(para_text)
+                        # Find footnote references in this paragraph
+                        footnote_refs = re.findall(r'\[\^(\d+)\]', para_text)
+                        chapter_footnote_refs.update(footnote_refs)
+                        # Also look for [1], [2] style references
+                        footnote_refs2 = re.findall(r'\[(\d+)\]', para_text)
+                        chapter_footnote_refs.update(footnote_refs2)
                 
                 current_elem = current_elem.find_next_sibling()
             
-            # Add footnotes to chapter
-            for num, text in footnote_map.items():
-                current_chapter.add_footnote(num, text)
+            # Add only referenced footnotes to chapter
+            for num in sorted(chapter_footnote_refs, key=lambda x: int(x) if x.isdigit() else 0):
+                if num in footnote_map:
+                    current_chapter.add_footnote(num, footnote_map[num])
     
     # Don't forget last chapter
     if current_chapter:
