@@ -1,0 +1,139 @@
+# Lion not Dead.
+
+The Convention, borne on the tide of Fortune towards foreign Victory, and
+      driven by the strong wind of Public Opinion towards Clemency and Luxury,
+      is rushing fast; all skill of pilotage is needed, and more than all, in
+      such a velocity.
+
+Curious to see, how we veer and whirl, yet must ever whirl round again,
+      and scud before the wind. If, on the one hand, we re-admit the Protesting
+      Seventy-Three, we, on the other hand, agree to consummate the Apotheosis
+      of Marat; lift his body from the Cordeliers Church, and transport it to
+      the Pantheon of Great Men,—flinging out Mirabeau to make room for
+      him. To no purpose: so strong blows Public Opinion! A Gilt Youthhood, in
+      plaited hair-tresses, tears down his Busts from the Theatre Feydeau;
+      tramples them under foot; scatters them, with vociferation into the
+      Cesspool of Montmartre.[^769] Swept is his Chapel from the Place du
+      Carrousel; the Cesspool of Montmartre will receive his very dust. Shorter
+      godhood had no divine man. Some four months in this Pantheon, Temple of
+      All the Immortals; then to the Cesspool, grand *Cloaca* of Paris and
+      the World! “His Busts at one time amounted to four thousand.” Between
+      Temple of All the Immortals and Cloaca of the World, how are poor human
+      creatures whirled!
+
+Furthermore the question arises, When will the Constitution of
+      *Ninety-three*, of 1793, come into action? Considerate heads
+      surmise, in all privacy, that the Constitution of Ninety-three will never
+      come into action. Let them busy themselves to get ready a better.
+
+Or, again, where now are the Jacobins? Childless, most decrepit, as we
+      saw, sat the mighty Mother; gnashing not teeth, but empty gums, against a
+      traitorous Thermidorian Convention and the current of things. Twice were
+      Billaud, Collot and Company accused in Convention, by a Lecointre, by a
+      Legendre; and the second time, it was not voted calumnious. Billaud from
+      the Jacobin tribune says, ‘The lion is not dead, he is only sleeping.’
+      They ask him in Convention, What he means by the awakening of the lion?
+      And bickerings, of an extensive sort, arose in the Palais-Egalité between
+      *Tappe-durs* and the Gilt Youthhood; cries of ‘Down with the
+      Jacobins, the *Jacoquins*,’ *coquin* meaning scoundrel! The
+      Tribune in mid-air gave battle-sound; answered only by silence and
+      uncertain gasps. Talk was, in Government Committees, of “suspending” the
+      Jacobin Sessions. Hark, there!—it is in Allhallow-time, or on the
+      Hallow-eve itself, month *ci-devant* November, year once named of
+      Grace 1794, sad eve for Jacobinism,—volley of stones dashing
+      through our windows, with jingle and execration! The female Jacobins,
+      famed *Tricoteuses* with knitting-needles, take flight; are met at
+      the doors by a Gilt Youthhood and “mob of four thousand persons;” are
+      hooted, flouted, hustled; fustigated, in a scandalous manner,
+      *cotillons retroussés;*—and vanish in mere hysterics. Sally
+      out ye male Jacobins! The male Jacobins sally out; but only to battle,
+      disaster and confusion. So that armed Authority has to intervene: and
+      again on the morrow to intervene; and suspend the Jacobin Sessions
+      forever and a day.[^770] Gone are the Jacobins; into invisibility;
+      in a storm of laughter and howls. Their place is made a Normal School,
+      the first of the kind seen; it then vanishes into a “Market of Thermidor
+      Ninth;” into a Market of Saint-Honoré, where is now peaceable chaffering
+      for poultry and greens. The solemn temples, the great globe itself; the
+      baseless fabric! Are not we such stuff, we and this world of ours, as
+      Dreams are made of?
+
+Maximum being abrogated, Trade was to take its own free course. Alas,
+      Trade, shackled, topsyturvied in the way we saw, and now suddenly let go
+      again, can for the present take no course at all; but only reel and
+      stagger. There is, so to speak, no Trade whatever for the time being.
+      Assignats, long sinking, emitted in such quantities, sink now with an
+      alacrity beyond parallel. ‘*Combien?*’ said one, to a
+      Hackney-coachman, ‘What fare?’ ‘Six thousand livres,’ answered he: some
+      three hundred pounds sterling, in Paper-money.[^771] Pressure of Maximum
+      withdrawn, the things it compressed likewise withdraw. “Two ounces of
+      bread per day” in the modicum allotted: wide-waving, doleful are the
+      Bakers’ Queues; Farmers’ houses are become pawnbrokers’ shops.
+
+One can imagine, in these circumstances, with what humour Sansculottism
+      growled in its throat, ‘*La Cabarus;*’ beheld Ci-devants return
+      dancing, the Thermidor effulgence of recivilisation, and Balls in
+      flesh-coloured drawers. Greek tunics and sandals; hosts of
+      *Muscadins* parading, with their clubs loaded with lead;—and
+      we here, cast out, abhorred, “picking offals from the street;”[^772] agitating in Baker’s Queue for our two
+      ounces of bread! Will the Jacobin lion, which they say is meeting
+      secretly “at the Archevêché, in *bonnet rouge* with loaded pistols,”
+      not awaken? Seemingly not. Our Collot, our Billaud, Barrère, Vadier, in
+      these last days of March 1795, are found worthy of *Déportation*, of
+      Banishment beyond seas; and shall, for the present, be trundled off to
+      the Castle of Ham. The lion is dead;—or writhing in death-throes!
+
+Behold, accordingly, on the day they call Twelfth of Germinal (which is
+      also called First of April, not a lucky day), how lively are these
+      streets of Paris once more! Floods of hungry women, of squalid hungry
+      men; ejaculating: ‘Bread, Bread and the Constitution of Ninety-three!’
+      Paris has risen, once again, like the Ocean-tide; is flowing towards the
+      Tuileries, for Bread and a Constitution. Tuileries Sentries do their
+      best; but it serves not: the Ocean-tide sweeps them away; inundates the
+      Convention Hall itself; howling, ‘Bread, and the Constitution!’
+
+Unhappy Senators, unhappy People, there is yet, after all toils and
+      broils, no Bread, no Constitution. ‘*Du pain, pas tant de longs
+      discours*, Bread, not bursts of Parliamentary eloquence!’ so wailed
+      the Menads of Maillard, five years ago and more; so wail ye to this hour.
+      The Convention, with unalterable countenance, with what thought one knows
+      not, keeps its seat in this waste howling chaos; rings its stormbell from
+      the Pavilion of Unity. Section Lepelletier, old *Filles
+      Saint-Thomas*, who are of the money-changing species; these and Gilt
+      Youthhood fly to the rescue; sweep chaos forth again, with levelled
+      bayonets. Paris is declared “in a state of siege.” Pichegru, Conqueror of
+      Holland, who happens to be here, is named Commandant, till the
+      disturbance end. He, in one day, so to speak, ends it. He accomplishes
+      the transfer of Billaud, Collot and Company; dissipating all opposition
+      “by two cannon-shots,” blank cannon-shots, and the terror of his name;
+      and thereupon announcing, with a Laconicism which should be imitated,
+      ‘Representatives, your decrees are executed,’[^773] lays down his
+      Commandantship.
+
+This Revolt of Germinal, therefore, has passed, like a vain cry. The
+      Prisoners rest safe in Ham, waiting for ships; some nine hundred “chief
+      Terrorists of Paris” are disarmed. Sansculottism, swept forth with
+      bayonets, has vanished, with its misery, to the bottom of Saint-Antoine
+      and Saint-Marceau.—Time was when Usher Maillard with Menads could
+      alter the course of Legislation; but that time is not. Legislation seems
+      to have got bayonets; Section Lepelletier takes its firelock, not for us!
+      We retire to our dark dens; our cry of hunger is called a Plot of Pitt;
+      the Saloons glitter, the flesh-coloured Drawers gyrate as before. It was
+      for ‘*The Cabarus*’ then, and her *Muscadins* and
+      Money-changers, that we fought? It was for Balls in flesh-coloured
+      drawers that we took Feudalism by the beard, and did, and dared, shedding
+      our blood like water? Expressive Silence, muse thou their praise!—
+
+
+---
+
+## Footnotes
+
+[^769]: Moniteur , du 25 Septembre 1794, du 4 Février 1795.
+
+[^770]: Moniteur , Séances du 10-12 Novembre 1794: Deux Amis , xiii. 43-49.
+
+[^771]: Mercier, ii. 94. (“1st February, 1796: at the Bourse of Paris, the gold louis,”
+
+[^772]: Fantin Desodoards, Histoire de la Révolution , vii. c. 4.
+
+[^773]: Moniteur , Séance du 13 Germinal (2d April) 1795.

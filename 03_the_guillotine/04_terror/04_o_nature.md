@@ -1,0 +1,170 @@
+# O Nature.
+
+But looking more specially into Paris City, what is this that History, on
+      the 10th of August, Year One of Liberty, “by old-style, year 1793,”
+      discerns there? Praised be the Heavens, a new Feast of Pikes!
+
+For Chaumette’s “Deputation every day” has worked out its result: a
+      Constitution. It was one of the rapidest Constitutions ever put together;
+      made, some say in eight days, by Hérault Séchelles and others: probably a
+      workmanlike, roadworthy Constitution enough;—on which point,
+      however, we are, for some reasons, little called to form a judgment.
+      Workmanlike or not, the Forty-four Thousand Communes of France, by
+      overwhelming majorities, did hasten to accept it; glad of any
+      Constitution whatsoever. Nay Departmental Deputies have come, the
+      venerablest Republicans of each Department, with solemn message of
+      Acceptance; and now what remains but that our new Final Constitution be
+      proclaimed, and sworn to, in Feast of Pikes? The Departmental Deputies,
+      we say, are come some time ago;—Chaumette very anxious about them,
+      lest Girondin *Monsieurs*, Agio-jobbers, or were it even *Filles
+      de joie* of a Girondin temper, corrupt their morals.[^671] Tenth of August, immortal Anniversary,
+      greater almost than Bastille July, is the Day.
+
+Painter David has not been idle. Thanks to David and the French genius,
+      there steps forth into the sunlight, this day, a Scenic Phantasmagory
+      unexampled:—whereof History, so occupied with Real-Phantasmagories,
+      will say but little.
+
+For one thing, History can notice with satisfaction, on the ruins of the
+      Bastille, a *Statue of Nature;* gigantic, spouting water from her
+      two *mammelles*. Not a Dream this; but a Fact, palpable visible.
+      There she spouts, great Nature; dim, before daybreak. But as the coming
+      Sun ruddies the East, come countless Multitudes, regulated and
+      unregulated; come Departmental Deputies, come Mother Society and
+      Daughters; comes National Convention, led on by handsome Herault; soft
+      wind-music breathing note of expectation. Lo, as great Sol scatters his
+      first fire-handful, tipping the hills and chimney-heads with gold,
+      Herault is at great Nature’s feet (she is Plaster of Paris merely);
+      Herault lifts, in an iron saucer, water spouted from the sacred breasts;
+      drinks of it, with an eloquent Pagan Prayer, beginning, ‘O Nature!’ and
+      all the Departmental Deputies drink, each with what best suitable
+      ejaculation or prophetic-utterance is in him;—amid breathings,
+      which become blasts, of wind-music; and the roar of artillery and human
+      throats: finishing well the first act of this solemnity.
+
+Next are processionings along the Boulevards: Deputies or Officials bound
+      together by long indivisible tricolor riband; general “members of the
+      Sovereign” walking pellmell, with pikes, with hammers, with the tools and
+      emblems of their crafts; among which we notice a Plough, and ancient
+      Baucis and Philemon seated on it, drawn by their children. Many-voiced
+      harmony and dissonance filling the air. Through Triumphal Arches enough:
+      at the basis of the first of which, we descry—whom thinkest
+      thou?—the Heroines of the Insurrection of Women. Strong Dames of
+      the Market, they sit there (Théroigne too ill to attend, one fears), with
+      oak-branches, tricolor bedizenment; firm-seated on their Cannons. To whom
+      handsome Herault, making pause of admiration, addresses soothing
+      eloquence; whereupon they rise and fall into the march.
+
+And now mark, in the Place de la Révolution, what other August Statue may
+      this be; veiled in canvas,—which swiftly we shear off by pulley and
+      cord? The *Statue of Liberty!* She too is of plaster, hoping to
+      become of metal; stands where a Tyrant Louis Quinze once stood. “Three
+      thousand birds” are let loose, into the whole world, with labels round
+      their neck, *We are free; imitate us.* Holocaust of Royalist and
+      *ci-devant* trumpery, such as one could still gather, is burnt;
+      pontifical eloquence must be uttered, by handsome Herault, and Pagan
+      orisons offered up.
+
+And then forward across the River; where is new enormous Statuary;
+      enormous plaster Mountain; Hercules-*Peuple*, with uplifted
+      all-conquering club; “many-headed Dragon of Girondin Federalism rising
+      from fetid marsh;”—needing new eloquence from Herault. To say
+      nothing of Champ-de-Mars, and Fatherland’s Altar there; with urn of slain
+      Defenders, Carpenter’s-level of the Law; and such exploding,
+      gesticulating and perorating, that Herault’s lips must be growing white,
+      and his tongue cleaving to the roof of his mouth.[^672]
+
+Towards six-o’clock let the wearied President, let Paris Patriotism
+      generally sit down to what repast, and social repasts, can be had; and
+      with flowing tankard or light-mantling glass, usher in this New and
+      Newest Era. In fact, is not Romme’s New Calendar getting ready? On all
+      housetops flicker little tricolor Flags, their flagstaff a Pike and
+      Liberty-Cap. On all house-walls, for no Patriot, not suspect, will be
+      behind another, there stand printed these words: *Republic one and
+      indivisible, Liberty, Equality, Fraternity, or Death.*
+
+As to the New Calendar, we may say here rather than elsewhere that
+      speculative men have long been struck with the inequalities and
+      incongruities of the Old Calendar; that a New one has long been as good
+      as determined on. Maréchal the Atheist, almost ten years ago, proposed a
+      New Calendar, free at least from superstition: this the Paris
+      Municipality would now adopt, in defect of a better; at all events, let
+      us have either this of Maréchal’s or a better,—the New Era being
+      come. Petitions, more than once, have been sent to that effect; and
+      indeed, for a year past, all Public Bodies, Journalists, and Patriots in
+      general, have dated *First Year of the Republic*. It is a subject
+      not without difficulties. But the Convention has taken it up; and Romme,
+      as we say, has been meditating it; not Maréchal’s New Calendar, but a
+      better New one of Romme’s and our own. Romme, aided by a Monge, a
+      Lagrange and others, furnishes mathematics; Fabre d’Eglantine furnishes
+      poetic nomenclature: and so, on the 5th of October 1793, after trouble
+      enough, they bring forth this New Republican Calendar of theirs, in a
+      complete state; and by Law, get it put in action.
+
+Four equal Seasons, Twelve equal Months of thirty days each: this makes
+      three hundred and sixty days; and five odd days remain to be disposed of.
+      The five odd days we will make Festivals, and name the five
+      *Sansculottides*, or Days without Breeches. Festival of Genius;
+      Festival of Labour; of Actions; of Rewards; of Opinion: these are the
+      five Sansculottides. Whereby the great Circle, or Year, is made complete:
+      solely every fourth year, whilom called Leap-year, we introduce a sixth
+      Sansculottide; and name it Festival of the Revolution. Now as to the day
+      of commencement, which offers difficulties, is it not one of the luckiest
+      coincidences that the Republic herself commenced on the 21st of
+      September; close on the Vernal Equinox? Vernal Equinox, at midnight for
+      the meridian of Paris, in the year whilom Christian 1792, from that
+      moment shall the New Era reckon itself to begin. *Vendémiaire,
+      Brumaire, Frimaire;* or as one might say, in mixed English,
+      *Vintagearious, Fogarious, Frostarious:* these are our three Autumn
+      months. *Nivose, Pluviose, Ventose*, or say *Snowous, Rainous,
+      Windous*, make our Winter season. *Germinal, Floréal, Prairial*,
+      or *Buddal, Floweral, Meadowal*, are our Spring season. *Messidor,
+      Thermidor, Fructidor*, that is to say (*dor* being Greek for
+      *gift*), *Reapidor, Heatidor, Fruitidor*, are Republican
+      Summer. These Twelve, in a singular manner, divide the Republican Year.
+      Then as to minuter subdivisions, let us venture at once on a bold stroke:
+      adopt your decimal subdivision; and instead of world-old Week, or
+      *Se’ennight*, make it a *Tennight* or *Décade;*—not
+      without results. There are three Decades, then, in each of the months;
+      which is very regular; and the *Decadi*, or Tenth-day, shall always
+      be “the Day of Rest.” And the Christian Sabbath, in that case? Shall
+      shift for itself!
+
+This, in brief, in this New Calendar of Romme and the Convention;
+      calculated for the meridian of Paris, and Gospel of Jean-Jacques: not one
+      of the least afflicting occurrences for the actual British reader of
+      French History;—confusing the soul with *Messidors,
+      Meadowals;* till at last, in self-defence, one is forced to construct
+      some ground-scheme, or rule of Commutation from New-style to Old-style,
+      and have it lying by him. Such ground-scheme, almost worn out in our
+      service, but still legible and printable, we shall now, in a Note,
+      present to the reader. For the Romme Calendar, in so many Newspapers,
+      Memoirs, Public Acts, has stamped itself deep into that section of Time:
+      a New Era that lasts some Twelve years and odd is not to be despised.[^673] Let the reader, therefore, with such
+      ground-scheme, help himself, where needful, out of New-style into
+      Old-style, called also “slave-style, *stile-esclave;*”—whereof
+      we, in these pages, shall as much as possible use the latter only.
+
+Thus with new Feast of Pikes, and New Era or New Calendar, did France
+      accept her New Constitution: the most Democratic Constitution ever
+      committed to paper. How it will work in practice? Patriot Deputations
+      from time to time solicit fruition of it; that it be set a-going. Always,
+      however, this seems questionable; for the moment, unsuitable. Till, in
+      some weeks, *Salut Public*, through the organ of Saint-Just, makes
+      report, that, in the present alarming circumstances, the state of France
+      is Revolutionary; that her “Government must be Revolutionary till the
+      Peace!” Solely as Paper, then, and as a Hope, must this poor New
+      Constitution exist;—in which shape we may conceive it lying; even
+      now, with an infinity of other things, in that Limbo near the Moon.
+      Further than paper it never got, nor ever will get.
+
+
+---
+
+## Footnotes
+
+[^671]: Deux Amis , xi. 73.
+
+[^672]: Choix des Rapports , xii. 432-42.
+
+[^673]: September 22nd of 1792 is Vendémiaire 1st of Year One, and the new months

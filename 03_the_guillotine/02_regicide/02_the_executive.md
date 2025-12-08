@@ -1,0 +1,145 @@
+# The Executive.
+
+May we not conjecture therefore that round this grand enterprise of
+      Making the Constitution there will, as heretofore, very strange
+      embroilments gather, and questions and interests complicate themselves;
+      so that after a few or even several months, the Convention will not have
+      settled every thing? Alas, a whole tide of questions comes rolling,
+      boiling; growing ever wider, without end! Among which, apart from this
+      question of September and Anarchy, let us notice those, which emerge
+      oftener than the others, and promise to become Leading Questions: of the
+      Armies; of the Subsistences; thirdly, of the Dethroned King.
+
+As to the Armies, Public Defence must evidently be put on a proper
+      footing; for Europe seems coalising itself again; one is apprehensive
+      even England will join it. Happily Dumouriez prospers in the
+      North;—nay what if he should prove too prosperous, and become
+      *Liberticide*, Murderer of Freedom!—Dumouriez prospers,
+      through this winter season; yet not without lamentable complaints. Sleek
+      Pache, the Swiss Schoolmaster, he that sat frugal in his Alley, the
+      wonder of neighbours, has got lately—whither thinks the Reader? To
+      be Minister of war! Madame Roland, struck with his sleek ways,
+      recommended him to her Husband as Clerk: the sleek Clerk had no need of
+      salary, being of true Patriotic temper; he would come with a bit of bread
+      in his pocket, to save dinner and time; and, munching incidentally, do
+      three men’s work in a day, punctual, silent, frugal,—the sleek
+      Tartuffe that he was. Wherefore Roland, in the late Overturn, recommended
+      him to be War-Minister. And now, it would seem, he is secretly
+      undermining Roland; playing into the hands of your hotter Jacobins and
+      September Commune; and cannot, like strict Roland, be the *Veto des
+      Coquins!*[^576]
+
+How the sleek Pache might mine and undermine, one knows not well; this
+      however one does know: that his War-Office has become a den of thieves
+      and confusion, such as all men shudder to behold. That the Citizen
+      Hassenfratz, as Head-Clerk, sits there in *bonnet rouge*, in rapine,
+      in violence, and some Mathematical calculation; a most insolent,
+      red-nightcapped man. That Pache munches his pocket-loaf, amid head-clerks
+      and sub-clerks, and has spent all the War-Estimates: that Furnishers
+      scour in gigs, over all districts of France, and drive
+      bargains;—and lastly that the Army gets next to no furniture. No
+      shoes, though it is winter; no clothes; some have not even arms: “In the
+      Army of the South,” complains an honourable Member, “there are thirty
+      thousand pairs of breeches wanting,”—a most scandalous want.
+
+Roland’s strict soul is sick to see the course things take: but what can
+      he do? Keep his own Department strict; rebuke, and repress wheresoever
+      possible; at lowest, complain. He can complain in Letter after Letter, to
+      a National Convention, to France, to Posterity, the Universe; grow ever
+      more querulous indignant;—till at last may he not grow wearisome?
+      For is not this continual text of his, at bottom a rather barren one: How
+      astonishing that in a time of Revolt and abrogation of all Law but Cannon
+      Law, there should be such Unlawfulness? Intrepid Veto-of-Scoundrels,
+      narrow-faithful, respectable, methodic man, work thou in that manner,
+      since happily it is thy manner, and wear thyself away; though
+      ineffectual, not profitless in it—then nor *now!*—The
+      brave Dame Roland, bravest of all French women, begins to have
+      misgivings: the figure of Danton has too much of the “Sardanapalus
+      character,” at a Republican Rolandin Dinner-table: Clootz, Speaker of
+      Mankind, proses sad stuff about a Universal Republic, or union of all
+      Peoples and Kindreds in one and the same Fraternal Bond; of which Bond,
+      how it is to be *tied*, one unhappily sees not.
+
+It is also an indisputable, unaccountable or accountable fact that Grains
+      are becoming scarcer and scarcer. Riots for grain, tumultuous Assemblages
+      demanding to have the price of grain fixed abound far and near. The Mayor
+      of Paris and other poor Mayors are like to have their difficulties.
+      Pétion was re-elected Mayor of Paris; but has declined; being now a
+      Convention Legislator. Wise surely to decline: for, besides this of
+      Grains and all the rest, there is in these times an Improvised
+      insurrectionary Commune passing into an Elected legal one; getting their
+      accounts settled,—not without irritancy! Pétion has declined:
+      nevertheless many do covet and canvass. After months of scrutinising,
+      balloting, arguing and jargoning, one Doctor Chambon gets the post of
+      honour: who will not long keep it; but be, as we shall see, literally
+      *crushed* out of it.[^577]
+
+Think also if the private Sansculotte has not his difficulties, in a time
+      of dearth! Bread, according to the People’s-Friend, may be some “six sous
+      per pound, a day’s wages some fifteen;” and grim winter here. How the
+      Poor Man continues living, and so seldom starves, by miracle! Happily, in
+      these days, he can enlist, and have himself shot by the Austrians, in an
+      unusually satisfactory manner: for the Rights of Man.—But
+      Commandant Santerre, in this so straitened condition of the flour-market,
+      and state of Equality and Liberty, proposes, through the Newspapers, two
+      remedies, or at least palliatives: *First*, that all classes of men
+      should live, two days of the week, on potatoes; then *second*, that
+      every man should hang his dog. Hereby, as the Commandant thinks, the
+      saving, which indeed he computes to so many sacks, would be very
+      considerable. A cheerfuller form of inventive-stupidity than Commandant
+      Santerre’s dwells in no human soul. Inventive-stupidity, imbedded in
+      health, courage and good-nature: much to be commended. ‘My whole
+      strength,’ he tells the Convention once, ‘is, day and night, at the
+      service of my fellow-Citizens: if they find me worthless, they will
+      dismiss me; I will return and brew beer.’[^578]
+
+Or figure what correspondences a poor Roland, Minister of the Interior,
+      must have, on this of Grains alone! Free-trade in Grain, impossibility to
+      fix the Prices of Grain; on the other hand, clamour and necessity to fix
+      them: Political Economy lecturing from the Home Office, with
+      demonstration clear as Scripture;—ineffectual for the empty
+      National Stomach. The Mayor of Chartres, like to be eaten himself, cries
+      to the Convention: the Convention sends honourable Members in Deputation;
+      who endeavour to feed the multitude by miraculous spiritual methods; but
+      cannot. The multitude, in spite of all Eloquence, come bellowing round;
+      will have the Grain-Prices fixed, and at a moderate elevation; or
+      else—the honourable Deputies hanged on the spot! The honourable
+      Deputies, reporting this business, admit that, on the edge of horrid
+      death, they did fix, or affect to fix the Price of Grain: for which, be
+      it also noted, the Convention, a Convention that will not be trifled
+      with, sees good to reprimand them.[^579]
+
+But as to the origin of these Grain Riots, is it not most probably your
+      secret Royalists again? Glimpses of Priests were discernible in this of
+      Chartres,—to the eye of Patriotism. Or indeed may not “the root of
+      it all lie in the Temple Prison, in the heart of a perjured King,” well
+      as we guard him?[^580] Unhappy perjured King!—And so there
+      shall be Baker’s Queues, by and by, more sharp-tempered than ever: on
+      every Baker’s door-rabbet an iron ring, and coil of rope; whereon, with
+      firm grip, on this side and that, we form our Queue: but mischievous
+      deceitful persons cut the rope, and our Queue becomes a ravelment;
+      wherefore the coil must be made of iron chain.[^581] Also there shall be
+      Prices of Grain well fixed; but then no grain purchasable by them: bread
+      not to be had except by Ticket from the Mayor, few ounces per mouth
+      daily; after long swaying, with firm grip, on the chain of the Queue. And
+      Hunger shall stalk direful; and Wrath and Suspicion, whetted to the
+      Preternatural pitch, shall stalk;—as those other preternatural
+      “shapes of Gods in their wrathfulness” were discerned stalking, “in glare
+      and gloom of that fire-ocean,” when Troy Town fell!—
+
+
+---
+
+## Footnotes
+
+[^576]: Madame Roland, Mémoires , ii. 237, &c.
+
+[^577]: Dictionnaire des Hommes Marquans , § Chambon.
+
+[^578]: Moniteur (in Hist. Parl. xx. 412).
+
+[^579]: Hist. Parl. xx. 431-440.
+
+[^580]: Ibid. 409.
+
+[^581]: Mercier, Nouveau Paris .

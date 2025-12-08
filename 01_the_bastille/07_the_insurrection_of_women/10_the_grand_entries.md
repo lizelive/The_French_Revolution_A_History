@@ -1,0 +1,188 @@
+# The Grand Entries.
+
+The dull dawn of a new morning, drizzly and chill, had but broken over
+      Versailles, when it pleased Destiny that a Bodyguard should look out of
+      window, on the right wing of the Château, to see what prospect there was
+      in Heaven and in Earth. Rascality male and female is prowling in view of
+      him. His fasting stomach is, with good cause, sour; he perhaps cannot
+      forbear a passing malison on them; least of all can he forbear answering
+      such.
+
+Ill words breed worse: till the worst word came; and then the ill deed.
+      Did the maledicent Bodyguard, getting (as was too inevitable) better
+      malediction than he gave, load his musketoon, and threaten to fire; and
+      actually fire? Were wise who wist! It stands asserted; to us not
+      credibly. Be this as it may, menaced Rascality, in whinnying scorn, is
+      shaking at all Grates: the fastening of one (some write, it was a chain
+      merely) gives way; Rascality is in the Grand Court, whinnying louder
+      still.
+
+The maledicent Bodyguard, more Bodyguards than he do now give fire; a
+      man’s arm is shattered. Lecointre will depose[^251] that “the Sieur
+      Cardaine, a National Guard without arms, was stabbed.” But see, sure
+      enough, poor Jerôme l’Héritier, an unarmed National Guard he too,
+      “cabinet-maker, a saddler’s son, of Paris,” with the down of youthhood
+      still on his chin,—he reels death-stricken; rushes to the pavement,
+      scattering it with his blood and brains!—Allelew! Wilder than Irish
+      wakes, rises the howl: of pity; of infinite revenge. In few moments, the
+      Grate of the inner and inmost Court, which they name Court of Marble,
+      this too is forced, or surprised, and burst open: the Court of Marble too
+      is overflowed: up the Grand Staircase, up all stairs and entrances rushes
+      the living Deluge! Deshuttes and Varigny, the two sentry Bodyguards, are
+      trodden down, are massacred with a hundred pikes. Women snatch their
+      cutlasses, or any weapon, and storm-in Menadic:—other women lift
+      the corpse of shot Jerôme; lay it down on the Marble steps; there shall
+      the livid face and smashed head, dumb for ever, *speak*.
+
+Wo now to all Bodyguards, mercy is none for them! Miomandre de
+      Sainte-Marie pleads with soft words, on the Grand Staircase, “descending
+      four steps:”—to the roaring tornado. His comrades snatch him up, by
+      the skirts and belts; literally, from the jaws of Destruction; and
+      slam-to their Door. This also will stand few instants; the panels
+      shivering in, like potsherds. Barricading serves not: fly fast, ye
+      Bodyguards; rabid Insurrection, like the hellhound Chase, uproaring at
+      your heels!
+
+The terrorstruck Bodyguards fly, bolting and barricading; it follows.
+      Whitherward? Through hall on hall: wo, now! towards the Queen’s Suite of
+      Rooms, in the furtherest room of which the Queen is now asleep. Five
+      sentinels rush through that long Suite; they are in the Anteroom knocking
+      loud: ‘Save the Queen!’ Trembling women fall at their feet with tears;
+      are answered: ‘Yes, we will die; save ye the Queen!’
+
+Tremble not, women, but haste: for, lo, another voice shouts far through
+      the outermost door, ‘Save the Queen!’ and the door shut. It is brave
+      Miomandre’s voice that shouts this second warning. He has stormed across
+      imminent death to do it; fronts imminent death, having done it. Brave
+      Tardivet du Repaire, bent on the same desperate service, was borne down
+      with pikes; his comrades hardly snatched him in again alive. Miomandre
+      and Tardivet: let the names of these two Bodyguards, as the names of
+      brave men should, live long.
+
+Trembling Maids of Honour, one of whom from afar caught glimpse of
+      Miomandre as well as heard him, hastily wrap the Queen; not in robes of
+      State. She flies for her life, across the Œil-de-Bœuf; against the main
+      door of which too Insurrection batters. She is in the King’s Apartment,
+      in the King’s arms; she clasps her children amid a faithful few. The
+      Imperial-hearted bursts into mother’s tears: ‘O my friends, save me and
+      my children, *O mes amis, sauvez moi et mes enfans!*’ The battering
+      of Insurrectionary axes clangs audible across the Œil-de-Bœuf. What an
+      hour!
+
+Yes, Friends: a hideous fearful hour; shameful alike to Governed and
+      Governor; wherein Governed and Governor ignominiously testify that their
+      relation is at an end. Rage, which had brewed itself in twenty thousand
+      hearts, for the last four-and-twenty hours, has taken fire: Jerome’s
+      brained corpse lies there as live-coal. It is, as we said, the infinite
+      Element bursting in: wild-surging through all corridors and conduits.
+
+Meanwhile, the poor Bodyguards have got hunted mostly into the
+      Œil-de-Bœuf. They may die there, at the King’s threshhold; they can do
+      little to defend it. They are heaping *tabourets* (stools of
+      honour), benches and all moveables, against the door; at which the axe of
+      Insurrection thunders.—But did brave Miomandre perish, then, at the
+      Queen’s door? No, he was fractured, slashed, lacerated, left for dead; he
+      has nevertheless crawled hither; and shall live, honoured of loyal
+      France. Remark also, in flat contradiction to much which has been said
+      and sung, that Insurrection did *not* burst that door he had
+      defended; but hurried elsewhither, seeking new bodyguards.[^252]
+
+Poor Bodyguards, with their Thyestes’ Opera-Repast! Well for them, that
+      Insurrection has only pikes and axes; no right sieging tools! It shakes
+      and thunders. Must they all perish miserably, and Royalty with them?
+      Deshuttes and Varigny, massacred at the first inbreak, have been beheaded
+      in the Marble Court: a sacrifice to Jerôme’s *manes:* Jourdan with
+      the tile-beard did that duty willingly; and asked, If there were no more?
+      Another captive they are leading round the corpse, with howl-chauntings:
+      may not Jourdan again tuck up his sleeves?
+
+And louder and louder rages Insurrection within, plundering if it cannot
+      kill; louder and louder it thunders at the Œil-de-Bœuf: what can now
+      hinder its bursting in?—On a sudden it ceases; the battering has
+      ceased! Wild rushing: the cries grow fainter: there is silence, or the
+      tramp of regular steps; then a friendly knocking: ‘We are the Centre
+      Grenadiers, old Gardes Françaises: Open to us, Messieurs of the
+      Garde-du-Corps; we have not forgotten how you saved us at Fontenoy!’[^253] The door is opened; enter Captain Gondran
+      and the Centre Grenadiers: there are military embracings; there is sudden
+      deliverance from death into life.
+
+Strange Sons of Adam! It was to “exterminate” these Gardes-du-Corps that
+      the Centre Grenadiers left home: and now they have rushed to save them
+      from extermination. The memory of common peril, of old help, melts the
+      rough heart; bosom is clasped to bosom, not in war. The King shews
+      himself, one moment, through the door of his Apartment, with: ‘Do not
+      hurt my Guards!’—‘*Soyons frères*, Let us be brothers!’ cries
+      Captain Gondran; and again dashes off, with levelled bayonets, to sweep
+      the Palace clear.
+
+Now too Lafayette, suddenly roused, not from sleep (for his eyes had not
+      yet closed), arrives; with passionate popular eloquence, with prompt
+      military word of command. National Guards, suddenly roused, by sound of
+      trumpet and alarm-drum, are all arriving. The death-melly ceases: the
+      first sky-lambent blaze of Insurrection is got damped down; it burns now,
+      if unextinguished, yet flameless, as charred coals do, and not
+      inextinguishable. The King’s Apartments are safe. Ministers, Officials,
+      and even some loyal National deputies are assembling round their
+      Majesties. The consternation will, with sobs and confusion, settle down
+      gradually, into plan and counsel, better or worse.
+
+But glance now, for a moment, from the royal windows! A roaring sea of
+      human heads, inundating both Courts; billowing against all passages:
+      Menadic women; infuriated men, mad with revenge, with love of mischief,
+      love of plunder! Rascality has slipped its muzzle; and now bays,
+      three-throated, like the Dog of Erebus. Fourteen Bodyguards are wounded;
+      two massacred, and as we saw, beheaded; Jourdan asking, ‘Was it worth
+      while to come so far for two?’ Hapless Deshuttes and Varigny! Their fate
+      surely was sad. Whirled down so suddenly to the abyss; as men are,
+      suddenly, by the wide thunder of the Mountain Avalanche, awakened not by
+      *them*, awakened far off by others! When the Château Clock last
+      struck, they two were pacing languid, with poised musketoon; anxious
+      mainly that the next hour would strike. It has struck; to them inaudible.
+      Their trunks lie mangled: their heads parade, “on pikes twelve feet
+      long,” through the streets of Versailles; and shall, about noon reach the
+      Barriers of Paris,—a too ghastly contradiction to the large
+      comfortable Placards that have been posted there!
+
+The other captive Bodyguard is still circling the corpse of Jerome, amid
+      Indian war-whooping; bloody Tilebeard, with tucked sleeves, brandishing
+      his bloody axe; when Gondran and the Grenadiers come in sight. ‘Comrades,
+      will you see a man massacred in cold blood?’—‘Off, butchers!’
+      answer they; and the poor Bodyguard is free. Busy runs Gondran, busy run
+      Guards and Captains; scouring at all corridors; dispersing Rascality and
+      Robbery; sweeping the Palace clear. The mangled carnage is removed;
+      Jerome’s body to the Townhall, for inquest: the fire of Insurrection gets
+      damped, more and more, into measurable, manageable heat.
+
+Transcendent things of all sorts, as in the general outburst of
+      multitudinous Passion, are huddled together; the ludicrous, nay the
+      ridiculous, with the horrible. Far over the billowy sea of heads, may be
+      seen Rascality, caprioling on horses from the Royal Stud. The Spoilers
+      these; for Patriotism is always infected so, with a proportion of mere
+      thieves and scoundrels. Gondran snatched their prey from them in the
+      Château; whereupon they hurried to the Stables, and took horse there. But
+      the generous Diomedes’ steeds, according to Weber, disdained such
+      scoundrel-burden; and, flinging up their royal heels, did soon project
+      most of it, in parabolic curves, to a distance, amid peals of laughter:
+      and were caught. Mounted National Guards secured the rest.
+
+Now too is witnessed the touching last-flicker of Etiquette; which sinks
+      not here, in the Cimmerian World-wreckage, without a sign, as the
+      house-cricket might still chirp in the pealing of a Trump of Doom.
+      ‘Monsieur,’ said some Master of Ceremonies (one hopes it might be de
+      Brézé), as Lafayette, in these fearful moments, was rushing towards the
+      inner Royal Apartments, ‘*Monsieur, le Roi vous accorde les grandes
+      entrées*, Monsieur, the King grants you the Grand Entries,’—not
+      finding it convenient to refuse them![^254]
+
+
+---
+
+## Footnotes
+
+[^251]: Déposition de Lecointre (in Hist. Parl. iii. 111-115.)
+
+[^252]: Campan, ii. 75-87.
+
+[^253]: Toulongeon, i. 144.
+
+[^254]: Toulongeon, 1 App. 120.

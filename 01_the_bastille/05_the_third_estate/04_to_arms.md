@@ -1,0 +1,191 @@
+# To Arms!
+
+So hangs it, dubious, fateful, in the sultry days of July. It is the
+      passionate printed *advice* of M. Marat, to abstain, of all things,
+      from violence.[^168] Nevertheless the hungry poor are already
+      burning Town Barriers, where Tribute on eatables is levied; getting
+      clamorous for food.
+
+The twelfth July morning is Sunday; the streets are all placarded with an
+      enormous-sized *De par le Roi*, “inviting peaceable citizens to
+      remain within doors,” to feel no alarm, to gather in no crowd. Why so?
+      What mean these “placards of enormous size”? Above all, what means this
+      clatter of military; dragoons, hussars, rattling in from all points of
+      the compass towards the Place Louis Quinze; with a staid gravity of face,
+      though saluted with mere nicknames, hootings and even missiles?[^169] Besenval is with them. Swiss Guards of his
+      are already in the Champs Elysées, with four pieces of artillery.
+
+Have the destroyers descended on us, then? From the Bridge of Sèvres to
+      utmost Vincennes, from Saint-Denis to the Champ-de-Mars, we are begirt!
+      Alarm, of the vague unknown, is in every heart. The Palais Royal has
+      become a place of awestruck interjections, silent shakings of the head:
+      one can fancy with what dolorous sound the noon-tide cannon (which the
+      Sun fires at the crossing of his meridian) went off there; bodeful, like
+      an inarticulate voice of doom.[^170] Are these troops
+      verily come out “against Brigands”? Where are the Brigands? What mystery
+      is in the wind?—Hark! a human voice reporting articulately the
+      Job’s-news: *Necker, People’s Minister, Saviour of France, is
+      dismissed*. Impossible; incredible! Treasonous to the public peace!
+      Such a voice ought to be choked in the water-works;[^171]—had not the news-bringer quickly
+      fled. Nevertheless, friends, make of it what you will, the news is true.
+      Necker is gone. Necker hies northward incessantly, in obedient secrecy,
+      since yesternight. We have a new Ministry: Broglie the War-god;
+      Aristocrat Bréteuil; Foulon who said the people might eat grass!
+
+Rumour, therefore, shall arise; in the Palais Royal, and in broad France.
+      Paleness sits on every face; confused tremor and fremescence; waxing into
+      thunder-peals, of Fury stirred on by Fear.
+
+But see Camille Desmoulins, from the Café de Foy, rushing out, sibylline
+      in face; his hair streaming, in each hand a pistol! He springs to a
+      table: the Police satellites are eyeing him; alive they shall not take
+      him, not they alive him alive. This time he speaks without
+      stammering:—Friends, shall we die like hunted hares? Like sheep
+      hounded into their pinfold; bleating for mercy, where is no mercy, but
+      only a whetted knife? The hour is come; the supreme hour of Frenchman and
+      Man; when Oppressors are to try conclusions with Oppressed; and the word
+      is, swift Death, or Deliverance forever. Let such hour be
+      *well*-come! Us, meseems, one cry only befits: To Arms! Let
+      universal Paris, universal France, as with the throat of the whirlwind,
+      sound only: To arms!—‘To arms!’ yell responsive the innumerable
+      voices: like one great voice, as of a Demon yelling from the air: for all
+      faces wax fire-eyed, all hearts burn up into madness. In such, or fitter
+      words,[^172] does Camille evoke the Elemental Powers,
+      in this great moment.—Friends, continues Camille, some rallying
+      sign! Cockades; green ones;—the colour of hope!—As with the
+      flight of locusts, these green tree leaves; green ribands from the
+      neighbouring shops; all green things are snatched, and made cockades of.
+      Camille descends from his table, “stifled with embraces, wetted with
+      tears;” has a bit of green riband handed him; sticks it in his hat. And
+      now to Curtius’ Image-shop there; to the Boulevards; to the four winds;
+      and rest not till France be on fire!
+
+France, so long shaken and wind-parched, is probably at the right
+      inflammable point.—As for poor Curtius, who, one grieves to think,
+      might be but imperfectly paid,—he cannot make two words about his
+      Images. The Wax-bust of Necker, the Wax-bust of D’Orléans, helpers of
+      France: these, covered with crape, as in funeral procession, or after the
+      manner of suppliants appealing to Heaven, to Earth, and Tartarus itself,
+      a mixed multitude bears off. For a sign! As indeed man, with his singular
+      imaginative faculties, can do little or nothing without signs: thus Turks
+      look to their Prophet’s banner; also Osier *Mannikins* have been
+      burnt, and Necker’s Portrait has erewhile figured, aloft on its perch.
+
+In this manner march they, a mixed, continually increasing multitude;
+      armed with axes, staves and miscellanea; grim, many-sounding, through the
+      streets. Be all Theatres shut; let all dancing, on planked floor, or on
+      the natural greensward, cease! Instead of a Christian Sabbath, and feast
+      of *guinguette* tabernacles, it shall be a Sorcerer’s Sabbath; and
+      Paris, gone rabid, dance,—with the Fiend for piper!
+
+However, Besenval, with horse and foot, is in the Place Louis Quinze.
+      Mortals promenading homewards, in the fall of the day, saunter by, from
+      Chaillot or Passy, from flirtation and a little thin wine; with sadder
+      step than usual. Will the Bust-Procession pass that way! Behold it;
+      behold also Prince Lambesc dash forth on it, with his Royal-Allemands!
+      Shots fall, and sabre-strokes; Busts are hewn asunder; and, alas, also
+      heads of men. A sabred Procession has nothing for it but to
+      *explode*, along what streets, alleys, Tuileries Avenues it finds;
+      and disappear. One unarmed man lies hewed down; a Garde Française by his
+      uniform: bear him (or bear even the report of him) dead and gory to his
+      Barracks;—where he has comrades still alive!
+
+But why not now, victorious Lambesc, charge through that Tuileries Garden
+      itself, where the fugitives are vanishing? Not show the Sunday
+      promenaders too, how steel glitters, besprent with blood; that it be told
+      of, and men’s ears tingle?—Tingle, alas, they did; but the wrong
+      way. Victorious Lambesc, in this his second or Tuileries charge, succeeds
+      but in overturning (call it not slashing, for he struck with the flat of
+      his sword) one man, a poor old schoolmaster, most pacifically tottering
+      there; and is driven out, by barricade of chairs, by flights of “bottles
+      and glasses,” by execrations in bass voice and treble. Most delicate is
+      the mob-queller’s vocation; wherein Too-much may be as bad as Not-enough.
+      For each of these bass voices, and more each treble voice, borne to all
+      points of the City, rings now nothing but distracted indignation; will
+      ring all another. The cry, *To arms!* roars tenfold; steeples with
+      their metal storm-voice boom out, as the sun sinks; armorer’s shops are
+      broken open, plundered; the streets are a living foam-sea, chafed by all
+      the winds.
+
+Such issue came of Lambesc’s charge on the Tuileries Garden: no striking
+      of salutary terror into Chaillot promenaders; a striking into broad
+      wakefulness of Frenzy and the three Furies,—which otherwise were
+      not asleep! For they lie always, those subterranean Eumenides (fabulous
+      and yet so true), in the dullest existence of man;—and can dance,
+      brandishing their dusky torches, shaking their serpent-hair. Lambesc with
+      Royal-Allemand may ride to his barracks, with curses for his
+      marching-music; then ride back again, like one troubled in mind: vengeful
+      Gardes Françaises, *sacre*ing, with knit brows, start out on him,
+      from their barracks in the Chaussé d’Antin; pour a volley into him
+      (killing and wounding); which he must not answer, but ride on.[^173]
+
+Counsel dwells not under the plumed hat. If the Eumenides awaken, and
+      Broglie has given no orders, what can a Besenval do? When the Gardes
+      Françaises, with Palais-Royal volunteers, roll down, greedy of more
+      vengeance, to the Place Louis Quinze itself, they find neither Besenval,
+      Lambesc, Royal-Allemand, nor any soldier now there. Gone is military
+      order. On the far Eastern Boulevard, of Saint-Antoine, the Chasseurs
+      Normandie arrive, dusty, thirsty, after a hard day’s ride; but can find
+      no billet-master, see no course in this City of confusions; cannot get to
+      Besenval, cannot so much as discover where he is: Normandie must even
+      bivouac there, in its dust and thirst,—unless some patriot will
+      treat it to a cup of liquor, with advices.
+
+Raging multitudes surround the Hôtel-de-Ville, crying: Arms! Orders! The
+      Six-and-twenty Town-Councillors, with their long gowns, have ducked under
+      (into the raging chaos);—shall never emerge more. Besenval is
+      painfully wriggling himself out, to the Champ-de-Mars; he must sit there
+      “in the cruelest uncertainty:” courier after courier may dash off for
+      Versailles; but will bring back no answer, can hardly bring himself back.
+      For the roads are all blocked with batteries and pickets, with floods of
+      carriages arrested for examination: such was Broglie’s one sole order;
+      the Œil-de-Bœuf, hearing in the distance such mad din, which sounded
+      almost like invasion, will before all things keep its own head whole. A
+      new Ministry, with, as it were, but one foot in the stirrup, cannot take
+      leaps. Mad Paris is abandoned altogether to itself.
+
+What a Paris, when the darkness fell! A European metropolitan City hurled
+      suddenly forth from its old combinations and arrangements; to crash
+      tumultuously together, seeking new. Use and wont will now no longer
+      direct any man; each man, with what of originality he has, must begin
+      thinking; or following those that think. Seven hundred thousand
+      individuals, on the sudden, find all their old paths, old ways of acting
+      and deciding, vanish from under their feet. And so there go they, with
+      clangour and terror, they know not as yet whether running, swimming or
+      flying,—headlong into the New Era. With clangour and terror: from
+      above, Broglie the war-god impends, preternatural, with his redhot
+      cannon-balls; and from below, a preternatural Brigand-world menaces with
+      dirk and firebrand: madness rules the hour.
+
+Happily, in place of the submerged Twenty-six, the Electoral Club is
+      gathering; has declared itself a “Provisional Municipality.” On the
+      morrow it will get Provost Flesselles, with an Echevin or two, to give
+      help in many things. For the present it decrees one most essential thing:
+      that forthwith a “Parisian Militia” shall be enrolled. Depart, ye heads
+      of Districts, to labour in this great work; while we here, in Permanent
+      Committee, sit alert. Let fencible men, each party in its own range of
+      streets, keep watch and ward, all night. Let Paris court a little
+      fever-sleep; confused by such fever-dreams, of “violent motions at the
+      Palais Royal;”—or from time to time start awake, and look out,
+      palpitating, in its nightcap, at the clash of discordant
+      mutually-unintelligible Patrols; on the gleam of distant Barriers, going
+      up all-too ruddy towards the vault of Night.[^174]
+
+
+---
+
+## Footnotes
+
+[^168]: Avis au Peuple, ou les Ministres dévoilés , 1st July, 1789 in Histoire
+
+[^169]: Besenval, iii. 411.
+
+[^170]: Histoire Parlementaire , ii. 81.
+
+[^171]: Ibid.
+
+[^172]: Vieux Cordelier , par Camille Desmoulins, No. 5 (reprinted in Collection des Mémoires , par Baudouin Frères, Paris, 1825), p. 81.
+
+[^173]: Weber, ii. 75-91.
+
+[^174]: Deux Amis , i. 267-306.

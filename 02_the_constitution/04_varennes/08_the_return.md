@@ -1,0 +1,111 @@
+# The Return.
+
+So then our grand Royalist Plot, of Flight to Metz, has *executed*
+      itself. Long hovering in the background, as a dread royal
+      *ultimatum*, it has rushed forward in its terrors: verily to some
+      purpose. How many Royalist Plots and Projects, one after another,
+      cunningly-devised, that were to explode like powder-mines and
+      thunderclaps; not one solitary Plot of which has issued otherwise!
+      Powder-mine of a *Séance Royale* on the Twenty-third of June 1789,
+      which exploded as we then said, “through the touchhole;” which next, your
+      wargod Broglie having reloaded it, brought a Bastille about your ears.
+      Then came fervent Opera-Repast, with flourishing of sabres, and *O
+      Richard, O my King;* which, aided by Hunger, produces Insurrection of
+      Women, and Pallas Athene in the shape of Demoiselle Théroigne. Valour
+      profits not; neither has fortune smiled on Fanfaronade. The Bouillé
+      Armament ends as the Broglie one had done. Man after man spends himself
+      in this cause, only to work it quicker ruin; it seems a cause doomed,
+      forsaken of Earth and Heaven.
+
+On the Sixth of October gone a year, King Louis, escorted by Demoiselle
+      Théroigne and some two hundred thousand, made a Royal Progress and
+      Entrance into Paris, such as man had never witnessed: we prophesied him
+      Two more such; and accordingly another of them, after this Flight to
+      Metz, is now coming to pass. Théroigne will not escort here, neither does
+      Mirabeau now “sit in one of the accompanying carriages.” Mirabeau lies
+      dead, in the Pantheon of Great Men. Théroigne lies living, in dark
+      Austrian Prison; having gone to Liège, professionally, and been seized
+      there. Bemurmured now by the hoarse-flowing Danube; the light of her
+      Patriot Supper-Parties gone quite out; so lies Théroigne: she shall speak
+      with the Kaiser face to face, and return. And France lies how! Fleeting
+      Time shears down the great and the little; and in two years alters many
+      things.
+
+But at all events, here, we say, is a second Ignominious Royal
+      Procession, though much altered; to be witnessed also by its hundreds of
+      thousands. Patience, ye Paris Patriots; the Royal Berline is returning.
+      Not till Saturday: for the Royal Berline travels by slow stages; amid
+      such loud-voiced confluent sea of National Guards, sixty thousand as they
+      count; amid such tumult of all people. Three National-Assembly
+      Commissioners, famed Barnave, famed Pétion, generally-respectable
+      Latour-Maubourg, have gone to meet it; of whom the two former ride in the
+      Berline itself beside Majesty, day after day. Latour, as a mere
+      respectability, and man of whom all men speak well, can ride in the rear,
+      with Dame Tourzel and the *Soubrettes*.
+
+So on Saturday evening, about seven o’clock, Paris by hundreds of
+      thousands is again drawn up: not now dancing the tricolor joy-dance of
+      hope; nor as yet dancing in fury-dance of hate and revenge; but in
+      silence, with vague look of conjecture and curiosity mostly scientific. A
+      Sainte-Antoine Placard has given notice this morning that “whosoever
+      insults Louis shall be caned, whosoever applauds him shall be hanged.”
+      Behold then, at last, that wonderful New Berline; encircled by blue
+      National sea with fixed bayonets, which flows slowly, floating it on,
+      through the silent assembled hundreds of thousands. Three yellow Couriers
+      sit atop bound with ropes; Pétion, Barnave, their Majesties, with Sister
+      Elizabeth, and the Children of France, are within.
+
+Smile of embarrassment, or cloud of dull sourness, is on the broad
+      phlegmatic face of his Majesty: who keeps declaring to the successive
+      Official-persons, what is evident, ‘*Eh bien, me voilà*, Well, here
+      you have me;’ and what is not evident, ‘I do assure you I did not mean to
+      pass the frontiers;’ and so forth: speeches natural for that poor Royal
+      man; which Decency would veil. Silent is her Majesty, with a look of
+      grief and scorn; natural for that Royal Woman. Thus lumbers and creeps
+      the ignominious Royal Procession, through many streets, amid a
+      silent-gazing people: comparable, Mercier thinks,[^396] to some
+      *Procession de Roi de Bazoche;* or say, Procession of King Crispin,
+      with his Dukes of Sutor-mania and royal blazonry of Cordwainery. Except
+      indeed that this is not comic; ah no, it is comico-tragic; with bound
+      Couriers, and a Doom hanging over it; most fantastic, yet most miserably
+      real. Miserablest *flebile ludibrium* of a Pickleherring Tragedy! It
+      sweeps along there, in most ungorgeous pall, through many streets, in the
+      dusty summer evening; gets itself at length wriggled out of sight;
+      vanishing in the Tuileries Palace—towards its doom, of slow
+      torture, *peine forte et dure*.
+
+Populace, it is true, seizes the three rope-bound yellow Couriers; will
+      at least massacre *them*. But our august Assembly, which is sitting
+      at this great moment, sends out Deputation of rescue; and the whole is
+      got huddled up. Barnave, “all dusty,” is already there, in the National
+      Hall; making brief discreet address and report. As indeed, through the
+      whole journey, this Barnave has been most discreet, sympathetic; and has
+      gained the Queen’s trust, whose noble instinct teaches her always who is
+      to be trusted. Very different from heavy Pétion; who, if Campan speak
+      truth, ate his luncheon, comfortably filled his wine-glass, in the Royal
+      Berline; flung out his chicken-bones past the nose of Royalty itself;
+      and, on the King’s saying ‘France cannot be a Republic,’ answered ‘No, it
+      is not ripe yet.’ Barnave is henceforth a Queen’s adviser, if advice
+      could profit: and her Majesty astonishes Dame Campan by signifying almost
+      a regard for Barnave: and that, in a day of retribution and Royal
+      triumph, Barnave shall *not* be executed.[^397]
+
+On Monday night Royalty went; on Saturday evening it returns: so much,
+      within one short week, has Royalty accomplished for itself. The
+      Pickleherring Tragedy has vanished in the Tuileries Palace, towards “pain
+      strong and hard.” Watched, fettered, and humbled, as Royalty never was.
+      Watched even in its sleeping-apartments and inmost recesses: for it has
+      to sleep with door set ajar, blue National Argus watching, his eye fixed
+      on the Queen’s curtains; nay, on one occasion, as the Queen cannot sleep,
+      he offers to sit by her pillow, and converse a little![^398]
+
+
+---
+
+## Footnotes
+
+[^396]: Nouveau Paris , iii. 22.
+
+[^397]: Campan, ii. c. 18.
+
+[^398]: Ibid. ii. 149.

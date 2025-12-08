@@ -1,0 +1,239 @@
+# The Muster.
+
+With famine and a Constitutional theory of defective verbs going on, all
+      other excitement is conceivable. A universal shaking and sifting of
+      French Existence this is: in the course of which, for one thing, what a
+      multitude of low-lying figures are sifted to the top, and set busily to
+      work there!
+
+Dogleech Marat, now for-seen as Simon Stylites, we already know; him and
+      others, raised aloft. The mere sample, these, of what is coming, of what
+      continues coming, upwards from the realm of Night!—Chaumette, by
+      and by Anaxagoras Chaumette, one already descries: mellifluous in
+      street-groups; not now a sea-boy on the high and giddy mast: a
+      mellifluous tribune of the common people, with long curling locks, on
+      *bourne*stone of the thoroughfares; able sub-editor too; who shall
+      rise—to the very gallows. Clerk Tallien, he also is become
+      sub-editor; shall become able editor; and more. Bibliopolic Momoro,
+      Typographic Pruhomme see new trades opening. Collot d’Herbois, tearing a
+      passion to rags, pauses on the Thespian boards; listens, with that black
+      bushy head, to the sound of the world’s drama: shall the Mimetic become
+      Real? Did ye hiss him, O men of Lyons?[^270] Better had ye
+      clapped!
+
+Happy now, indeed, for all manner of *mimetic*, half-original men!
+      Tumid blustering, with more or less of sincerity, which need not be
+      entirely sincere, yet the sincerer the better, is like to go far. Shall
+      we say, the Revolution-element works itself rarer and rarer; so that only
+      lighter and lighter bodies will float in it; till at last the mere
+      blown-bladder is your only swimmer? Limitation of mind, then vehemence,
+      promptitude, audacity, shall all be available; to which add only these
+      two: cunning and good lungs. Good fortune must be presupposed.
+      Accordingly, of all classes the rising one, we observe, is now the
+      Attorney class: witness Bazires, Carriers, Fouquier-Tinvilles,
+      Bazoche-Captain Bourdons: more than enough. Such figures shall Night,
+      from her wonder-bearing bosom, emit; swarm after swarm. Of another deeper
+      and deepest swarm, not yet dawned on the astonished eye; of pilfering
+      Candle-snuffers, Thief-valets, disfrocked Capuchins, and so many Héberts,
+      Henriots, Ronsins, Rossignols, let us, as long as possible, forbear
+      speaking.
+
+Thus, over France, all stirs that has what the Physiologists call
+      *irritability* in it: how much more all wherein irritability has
+      perfected itself into vitality; into actual vision, and force that can
+      will! All stirs; and if not in Paris, flocks thither. Great and greater
+      waxes President Danton in his Cordeliers Section; his rhetorical tropes
+      are all “gigantic:” energy flashes from his black brows, menaces in his
+      athletic figure, rolls in the sound of his voice “reverberating from the
+      domes;” this man also, like Mirabeau, has a natural *eye*, and
+      begins to see whither Constitutionalism is tending, though with a wish in
+      it different from Mirabeau’s.
+
+Remark, on the other hand, how General Dumouriez has quitted Normandy and
+      the Cherbourg Breakwater, to come—whither we may guess. It is his
+      second or even third trial at Paris, since this New Era began; but now it
+      is in right earnest, for he has quitted all else. Wiry, elastic unwearied
+      man; whose life was but a battle and a march! No, *not* a creature
+      of Choiseul’s; ‘the creature of God and of my sword,’—he fiercely
+      answered in old days. Overfalling Corsican batteries, in the deadly
+      fire-hail; wriggling invincible from under his horse, at Closterkamp of
+      the Netherlands, though tethered with “crushed stirrup-iron and nineteen
+      wounds;” tough, minatory, standing at bay, as forlorn hope, on the skirts
+      of Poland; intriguing, battling in cabinet and field; roaming far out,
+      obscure, as King’s spial, or sitting sealed up, enchanted in Bastille;
+      fencing, pamphleteering, scheming and struggling from the very birth of
+      him,[^271]—the man has come thus far. How
+      repressed, how irrepressible! Like some incarnate spirit in prison, which
+      indeed he *was;* hewing on granite walls for deliverance; striking
+      fire flashes from them. And now has the general earthquake rent his
+      cavern too? Twenty years younger, what might he not have done! But his
+      hair has a shade of gray: his way of thought is all fixed, military. He
+      can *grow* no further, and the new world is in such growth. We will
+      name him, on the whole, one of Heaven’s Swiss; without faith; wanting
+      above all things work, work on *any* side. Work also is appointed
+      him; and he will do it.
+
+Not from over France only are the unrestful flocking towards Paris; but
+      from all sides of Europe. Where the carcase is, thither will the eagles
+      gather. Think how many a Spanish Guzman, Martinico Fournier named
+      “Fournier *l’Américain*,” Engineer Miranda from the very Andes, were
+      flocking or had flocked! Walloon Pereyra might boast of the strangest
+      parentage: him, they say, Prince Kaunitz the Diplomatist heedlessly
+      dropped;” like ostrich-egg, to be hatched of Chance—into an
+      ostrich-*eater!* Jewish or German Freys do business in the great
+      Cesspool of *Agio;* which Cesspool this *Assignat*-fiat has
+      quickened, into a Mother of dead dogs. Swiss Clavière could found no
+      Socinian Genevese Colony in Ireland; but he paused, years ago, prophetic
+      before the Minister’s Hôtel at Paris; and said, it was borne on his mind
+      that *he* one day was to be Minister, and laughed.[^272] Swiss Pachc, on the other hand, sits
+      sleekheaded, frugal; the wonder of his own alley, and even of
+      neighbouring ones, for humility of mind, and a thought deeper than most
+      men’s: sit there, Tartuffe, till wanted! Ye Italian Dufournys, Flemish
+      Prolys, flit hither all ye bipeds of prey! Come whosesoever head is hot;
+      thou of mind *ungoverned*, be it chaos as of undevelopment or chaos
+      as of ruin; the man who cannot get known, the man who is too well known;
+      if thou have any vendible faculty, nay if thou have but edacity and
+      loquacity, come! They come; with hot unutterabilities in their heart; as
+      Pilgrims towards a miraculous shrine. Nay how many come as vacant
+      Strollers, aimless, of whom Europe is full merely towards
+      *something!* For benighted fowls, when you beat their bushes, rush
+      towards any light. Thus Frederick Baron Trenck too is here; mazed,
+      purblind, from the cells of Magdeburg; Minotauric cells, and his Ariadne
+      lost! Singular to say, Trenck, in these years, sells wine; not indeed in
+      bottle, but in wood.
+
+Nor is our England without her missionaries. She has her live-saving
+      Needham;[^273] to whom was solemnly presented a “civic
+      sword,”—long since rusted into nothingness. Her Paine: rebellious
+      Staymaker; unkempt; who feels that he, a single Needleman, did by his
+      “*Common-Sense*” Pamphlet, free America;—that he can and will
+      free all this World; perhaps even the other. Price-Stanhope
+      Constitutional Association sends over to congratulate;[^274] welcomed by National Assembly, though they
+      are but a London Club; whom Burke and Toryism eye askance.
+
+On thee too, for country’s sake, O Chevalier John Paul, be a word spent,
+      or misspent! In faded naval uniform, Paul Jones lingers visible here;
+      like a wine-skin from which the wine is all drawn. Like the ghost of
+      himself! Low is his once loud bruit; scarcely audible, save, with extreme
+      tedium in ministerial ante-chambers; in this or the other charitable
+      dining-room, mindful of the past. What changes; culminatings and
+      declinings! Not now, poor Paul, thou lookest wistful over the Solway
+      brine, by the foot of native Criffel, into blue mountainous Cumberland,
+      into blue Infinitude; environed with thrift, with humble friendliness;
+      thyself, young fool, longing to be aloft from it, or even to be away from
+      it. Yes, beyond that sapphire Promontory, which men name St. Bees, which
+      is not sapphire either, but dull sandstone, when one gets *close* to
+      it, there is a world. Which world thou too shalt taste of!—From
+      yonder White Haven rise his smoke-clouds; ominous though ineffectual.
+      Proud Forth quakes at his bellying sails; had not the wind suddenly
+      shifted. Flamborough reapers, homegoing, pause on the hill-side: for what
+      sulphur-cloud is that that defaces the sleek sea; sulphur-cloud spitting
+      streaks of fire? A sea cockfight it is, and of the hottest; where British
+      *Serapis* and French-American *Bon Homme Richard* do lash and
+      throttle each other, in their fashion; and lo the desperate valour has
+      suffocated the deliberate, and Paul Jones too is of the Kings of the Sea!
+
+The Euxine, the Méotian waters felt thee next, and long-skirted Turks, O
+      Paul; and thy fiery soul has wasted itself in thousand
+      contradictions;—to no purpose. For, in far lands, with scarlet
+      Nassau-Siegens, with sinful Imperial Catherines, is not the heart-broken,
+      even as at home with the mean? Poor Paul! hunger and dispiritment track
+      thy sinking footsteps: once or at most twice, in this Revolution-tumult
+      the figure of thee emerges; mute, ghost-like, as “with stars
+      dim-twinkling through.” And then, when the light is gone quite out, a
+      National Legislature grants “ceremonial funeral!” As good had been the
+      natural Presbyterian Kirk-bell, and six feet of Scottish earth, among the
+      dust of thy loved ones.—*Such* world lay beyond the Promontory
+      of St. Bees. Such is the life of sinful mankind here below.
+
+But of all strangers, far the notablest for us is Baron Jean Baptiste de
+      Clootz;—or, dropping baptisms and feudalisms, World-Citizen
+      Anacharsis Clootz, from Cleves. Him mark, judicious Reader. Thou hast
+      known his Uncle, sharp-sighted thorough-going Cornelius de Pauw, who
+      mercilessly cuts down cherished illusions; and of the finest antique
+      Spartans, will make mere modern cutthroat Mainots.[^275] The like stuff is
+      in Anacharsis: hot metal; full of scoriae, which should and could have
+      been smelted out, but which will not. He has wandered over this
+      terraqueous Planet; seeking, one may say, the Paradise we lost long ago.
+      He has seen English Burke; has been seen of the Portugal Inquisition; has
+      roamed, and fought, and written; is writing, among other things,
+      “Evidences of the *Mahometan* Religion.” But now, like his Scythian
+      adoptive godfather, he finds himself in the Paris Athens; surely, at
+      last, the haven of his soul. A dashing man, beloved at Patriotic
+      dinner-tables; with gaiety, nay with humour; headlong, trenchant, of free
+      purse; in suitable costume; though what mortal ever more despised
+      costumes? Under all costumes Anacharsis seeks the man; not Stylites Marat
+      will more freely trample costumes, if they hold no man. This is the faith
+      of Anacharsis: That there is a Paradise discoverable; that all costumes
+      ought to hold men. O Anacharsis, it is a headlong, swift-going faith.
+      Mounted thereon, meseems, thou art bound hastily for the City of
+      *Nowhere;* and wilt *arrive!* At best, we may say, arrive *in
+      good riding attitude;* which indeed is something.
+
+So many new persons, and new things, have come to occupy this France. Her
+      old Speech and Thought, and Activity which springs from those, are all
+      changing; fermenting towards unknown issues. To the dullest peasant, as
+      he sits sluggish, overtoiled, by his evening hearth, one idea has come:
+      that of Châteaus burnt; of Châteaus combustible. How altered all
+      Coffeehouses, in Province or Capital! The *Antre de Procope* has now
+      other questions than the Three Stagyrite Unities to settle; not
+      theatre-controversies, but a world-controversy: there, in the ancient
+      pigtail mode, or with modern Brutus’ heads, do well-frizzed logicians
+      hold hubbub, and Chaos umpire sits. The ever-enduring Melody of Paris
+      Saloons has got a new ground-tone: ever-enduring; which has been heard,
+      and by the listening Heaven too, since Julian the Apostate’s time and
+      earlier; mad now as formerly.
+
+Ex-Censor Suard, *Ex*-Censor, for we have freedom of the Press; he
+      may be seen there; impartial, even neutral. Tyrant Grimm rolls large
+      eyes, over a questionable coming Time. Atheist Naigeon, beloved disciple
+      of Diderot, crows, in his small difficult way, heralding glad dawn.[^276] But, on the other hand, how many
+      Morellets, Marmontels, who had sat all their life hatching Philosophe
+      eggs, cackle now, in a state bordering on distraction, at the brood they
+      have brought out![^277] It was so delightful to have one’s
+      Philosophe Theorem demonstrated, crowned in the saloons: and now an
+      infatuated people will not continue speculative, but have Practice?
+
+There also observe Preceptress Genlis, or Sillery, or
+      Sillery-Genlis,—for our husband is both Count and Marquis, and we
+      have more than one title. Pretentious, frothy; a puritan yet creedless;
+      darkening counsel by words without wisdom! For, it is in that thin
+      element of the Sentimentalist and Distinguished-Female that
+      Sillery-Genlis works; she would gladly be sincere, yet can grow no
+      sincerer than sincere-cant: sincere-cant of many forms, ending in the
+      devotional form. For the present, on a neck still of moderate whiteness,
+      she wears as jewel a miniature Bastille, cut on mere sandstone, but then
+      actual Bastille sandstone. M. le Marquis is one of d’Orléans’s errandmen;
+      in National Assembly, and elsewhere. Madame, for her part, trains up a
+      youthful d’Orléans generation in what superfinest morality one can; gives
+      meanwhile rather enigmatic account of fair Mademoiselle Pamela, the
+      Daughter whom she has *adopted*. Thus she, in Palais Royal
+      saloon;—whither, we remark, d’Orléans himself, spite of Lafayette,
+      has returned from that English “mission” of his: surely no pleasant
+      mission: for the English would not speak to him; and Saint Hannah More of
+      England, so unlike Saint Sillery-Genlis of France, saw him shunned, in
+      Vauxhall Gardens, like one pest-struck,[^278] and his red-blue
+      impassive visage waxing hardly a shade bluer.
+
+
+---
+
+## Footnotes
+
+[^270]: Buzot, Mémoires (Paris, 1823), p. 90.
+
+[^271]: Dumouriez, Mémoires , i. 28, &c.
+
+[^272]: Dumont, Souvenirs sur Mirabeau , p. 399.
+
+[^273]: A trustworthy gentleman writes to me, three years ago, with a feeling which I cannot
+
+[^274]: Moniteur , 10 Novembre, 7 Decembre, 1789.
+
+[^275]: De Pauw, Recherches sur les Grecs , &c.
+
+[^276]: Naigeon: Addresse à l’Assemblée Nationale (Paris, 1790) sur la liberté
+
+[^277]: See Marmontel, Mémoires , passim; Morellet, Mémoires , &c.
+
+[^278]: Hannah More’s Life and Correspondence , ii. c. 5.
