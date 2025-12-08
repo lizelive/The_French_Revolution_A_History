@@ -54,15 +54,14 @@ class Chapter:
         
         # Content paragraphs
         for para in self.content_paragraphs:
-            lines.append(para)
+            # Clean up excessive whitespace and indentation
+            cleaned_para = ' '.join(para.split())
+            lines.append(cleaned_para)
             lines.append("")  # Blank line between paragraphs
         
-        # Footnotes section
-        if self.footnotes:
-            lines.append("\n---\n")
-            lines.append("## Footnotes\n")
-            for num, text in self.footnotes:
-                lines.append(f"[^{num}]: {text}\n")
+        # Remove trailing empty lines
+        while lines and not lines[-1].strip():
+            lines.pop()
         
         return '\n'.join(lines)
     
