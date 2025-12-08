@@ -33,13 +33,6 @@ python convert_gutenberg.py --download -o ./book
 python convert_gutenberg.py -i 1301-h.htm -o ./book
 ```
 
-### Installation
-
-```bash
-# Install dependencies
-pip install -r requirements.txt
-```
-
 ### Usage
 
 **Option 1: Download and convert automatically**

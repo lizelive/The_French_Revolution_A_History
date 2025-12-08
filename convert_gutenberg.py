@@ -11,6 +11,7 @@ Usage:
 import re
 import sys
 import argparse
+import tempfile
 from pathlib import Path
 from urllib.request import urlopen, Request
 from typing import List, Dict, Optional
@@ -266,12 +267,13 @@ def parse_with_beautifulsoup(html_content: str) -> List[Chapter]:
                     para_text = html_to_markdown(current_elem)
                     if para_text.strip():
                         current_chapter.add_paragraph(para_text)
-                        # Find footnote references in this paragraph
+                        # Find footnote references in markdown format [^1], [^2], etc.
                         footnote_refs = re.findall(r'\[\^(\d+)\]', para_text)
                         chapter_footnote_refs.update(footnote_refs)
-                        # Also look for [1], [2] style references
-                        footnote_refs2 = re.findall(r'\[(\d+)\]', para_text)
-                        chapter_footnote_refs.update(footnote_refs2)
+                        # Also check for plain [1] style that might not have been converted
+                        # Only match if not preceded by ^ to avoid double-counting
+                        footnote_refs_plain = re.findall(r'(?<!\^)\[(\d+)\]', para_text)
+                        chapter_footnote_refs.update(footnote_refs_plain)
                 
                 current_elem = current_elem.find_next_sibling()
             
@@ -484,9 +486,10 @@ Examples:
         print(f"Downloading from {args.url}...")
         try:
             html_content = download_html(args.url)
-            html_file = '/tmp/gutenberg_1301.html'
-            with open(html_file, 'w', encoding='utf-8') as f:
+            # Use cross-platform temporary file
+            with tempfile.NamedTemporaryFile(mode='w', suffix='.html', delete=False, encoding='utf-8') as f:
                 f.write(html_content)
+                html_file = f.name
             print(f"✓ Downloaded to {html_file}")
         except Exception as e:
             print(f"✗ Error downloading: {e}")
