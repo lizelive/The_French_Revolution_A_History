@@ -203,8 +203,9 @@ def parse_with_beautifulsoup(html_content: str) -> List[Chapter]:
     # "1 (return)<br>Actual footnote text"
     for footnote_p in soup.find_all('p', class_='footnote'):
         footnote_text = footnote_p.get_text(separator=' ', strip=True)
-        # Extract number and text - format is "NUMBER (return) TEXT"
-        match = re.match(r'^(\d+)\s*\([^)]*\)\s*(.*)', footnote_text)
+        # Extract number and text - format is "NUMBER (return) TEXT" or "NUMBER TEXT"
+        # Some footnotes may not have the (return) part
+        match = re.match(r'^(\d+)\s*(?:\([^)]*\))?\s*(.*)', footnote_text)
         if match:
             num = match.group(1)
             text = match.group(2).strip()
@@ -223,7 +224,7 @@ def parse_with_beautifulsoup(html_content: str) -> List[Chapter]:
             continue
         
         # Check for BOOK markers (format: "BOOK 1.I.TITLE" where parts may not have spaces)
-        book_match = re.match(r'BOOK\s+(\d+)\.([IVX]+)\.?\s*(.+)?', heading_text, re.I)
+        book_match = re.match(r'BOOK\s+(\d+)\.([IVXLCDM]+)\.?\s*(.+)?', heading_text, re.I)
         if book_match:
             current_volume = int(book_match.group(1))
             current_book = roman_to_int(book_match.group(2))
@@ -231,7 +232,7 @@ def parse_with_beautifulsoup(html_content: str) -> List[Chapter]:
         
         # Check for CHAPTER markers (format: "Chapter 1.1.I.Title" where title may have no space)
         chapter_match = re.match(
-            r'Chapter\s+(\d+)\.(\d+)\.([IVX]+)\.?\s*(.+)',
+            r'Chapter\s+(\d+)\.(\d+)\.([IVXLCDM]+)\.?\s*(.+)',
             heading_text,
             re.I
         )
