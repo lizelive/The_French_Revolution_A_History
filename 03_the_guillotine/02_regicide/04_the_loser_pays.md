@@ -1,4 +1,4 @@
-# The Loser Pays.
+# The Loser Pays
 
 The Sixth of November, 1792, was a great day for the Republic: outwardly, over the Frontiers; inwardly, in the *Salle de Manége*.
 

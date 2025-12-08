@@ -1,4 +1,4 @@
-# The General Overturn.
+# The General Overturn
 
 Of the King’s Court, for the present, there is almost nothing whatever to be said. Silent, deserted are these halls; Royalty languishes forsaken of its war-god and all its hopes, till once the Œil-de-Bœuf rally again. The sceptre is departed from King Louis; is gone over to the *Salles des Menus*, to the Paris Townhall, or one knows not whither. In the July days, while all ears were yet deafened by the crash of the Bastille, and Ministers and Princes were scattered to the four winds, it seemed as if the very Valets had grown heavy of hearing. Besenval, also in flight towards Infinite Space, but hovering a little at Versailles, was addressing his Majesty personally for an Order about post-horses; when, lo, “the Valet in waiting places himself familiarly between his Majesty and me,” stretching out his rascal neck to learn what it was! His Majesty, in sudden choler, whirled round; made a clutch at the tongs: “I gently prevented him; he grasped my hand in thankfulness; and I noticed tears in his eyes.”[^207]
 

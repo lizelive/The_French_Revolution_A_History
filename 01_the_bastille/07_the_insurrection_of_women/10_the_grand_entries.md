@@ -1,4 +1,4 @@
-# The Grand Entries.
+# The Grand Entries
 
 The dull dawn of a new morning, drizzly and chill, had but broken over Versailles, when it pleased Destiny that a Bodyguard should look out of window, on the right wing of the Château, to see what prospect there was in Heaven and in Earth. Rascality male and female is prowling in view of him. His fasting stomach is, with good cause, sour; he perhaps cannot forbear a passing malison on them; least of all can he forbear answering such.
 

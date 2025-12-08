@@ -1,4 +1,4 @@
-# The Gods are athirst.
+# The Gods are athirst
 
 What then is this Thing, called *La Révolution*, which, like an Angel of Death, hangs over France, noyading, fusillading, fighting, gun-boring, tanning human skins? *La Révolution* is but so many Alphabetic Letters; a thing nowhere to be laid hands on, to be clapt under lock and key: where is it? what is it? It is the Madness that dwells in the hearts of men. In this man it is, and in that man; as a rage or as a terror, it is in all men. Invisible, impalpable; and yet no black Azrael, with wings spread over half a continent, with sword sweeping from sea to sea, could be a truer Reality.
 

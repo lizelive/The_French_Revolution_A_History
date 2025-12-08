@@ -1,4 +1,4 @@
-# Quiberon.
+# Quiberon
 
 But indeed do not these long-flowing hair-queues of a *Jeunesse Dorée* in semi-military costume betoken, unconsciously, another still more important tendency? The Republic, abhorrent of her Guillotine, loves her Army.
 

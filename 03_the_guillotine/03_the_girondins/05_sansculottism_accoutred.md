@@ -1,4 +1,4 @@
-# Sansculottism Accoutred.
+# Sansculottism Accoutred
 
 Let us look, however, at the grand internal Sansculottism and Revolution Prodigy, whether it stirs and waxes: there and not elsewhere hope may still be for France. The Revolution Prodigy, as Decree after Decree issues from the Mountain, like creative *fiats*, accordant with the nature of the Thing,—is shaping itself rapidly, in these days, into terrific stature and articulation, limb after limb. Last March, 1792, we saw all France flowing in blind terror; shutting town-barriers, boiling pitch for Brigands: happier, this March, that it is a seeing terror; that a creative Mountain exists, which can say *fiat!* Recruitment proceeds with fierce celerity: nevertheless our Volunteers hesitate to set out, till Treason be punished at home; they do not fly to the frontiers; but only fly hither and thither, demanding and denouncing. The Mountain must speak new *fiat*, and new *fiats*.
 

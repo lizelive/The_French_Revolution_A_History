@@ -1,4 +1,4 @@
-# Make the Constitution.
+# Make the Constitution
 
 Here perhaps is the place to fix, a little more precisely, what these two words, *French Revolution*, shall mean; for, strictly considered, they may have as many meanings as there are speakers of them. All things are in revolution; in change from moment to moment, which becomes sensible from epoch to epoch: in this Time-World of ours there is properly nothing else but revolution and mutation, and even nothing else conceivable. Revolution, you answer, means *speedier* change. Whereupon one has still to ask: How speedy? At what degree of speed; in what particular points of this variable course, which varies in velocity, but can never stop till Time itself stops, does revolution begin and end; cease to be ordinary mutation, and again become such? It is a thing that will depend on definition more or less arbitrary.
 

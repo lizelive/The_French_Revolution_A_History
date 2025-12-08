@@ -1,4 +1,4 @@
-# Fatherland in Danger.
+# Fatherland in Danger
 
 Or rather we will say, this Senatorial war might have lasted long; and Party tugging and throttling with Party might have suppressed and smothered one another, in the ordinary bloodless Parliamentary way; on one condition: that France had been at least able to exist, all the while. But this Sovereign People has a digestive faculty, and cannot do without bread. Also we are at war, and must have victory; at war with Europe, with Fate and Famine: and behold, in the spring of the year, all victory deserts us.
 

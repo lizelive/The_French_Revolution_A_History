@@ -1,4 +1,4 @@
-# Flame-Picture.
+# Flame-Picture
 
 In this manner, mad-blazing with flame of all imaginable tints, from the red of Tophet to the stellar-bright, blazes off this Consummation of Sansculottism.
 

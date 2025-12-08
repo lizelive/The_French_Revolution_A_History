@@ -1,4 +1,4 @@
-# In Queue.
+# In Queue
 
 If we look now at Paris, one thing is too evident: that the Baker’s shops have got their *Queues*, or Tails; their long strings of purchasers, arranged *in tail*, so that the first come be the first served,—were the shop once open! This waiting in tail, not seen since the early days of July, again makes its appearance in August. In time, we shall see it perfected by practice to the rank almost of an art; and the art, or quasi-art, of standing in tail become one of the characteristics of the Parisian People, distinguishing them from all other Peoples whatsoever.
 

@@ -1,4 +1,4 @@
-# Bouillé at Metz.
+# Bouillé at Metz
 
 To Bouillé, in his North-Eastern circle, none of these things are altogether hid. Many times flight over the marches gleams out on him as a last guidance in such bewilderment: nevertheless he continues here: struggling always to hope the best, not from new organisation but from happy Counter-Revolution and return to the old. For the rest it is clear to him that this same National Federation, and universal swearing and fraternising of People and Soldiers, has done “incalculable mischief.” So much that fermented secretly has hereby got vent and become open: National Guards and Soldiers of the line, solemnly embracing one another on all parade-fields, drinking, swearing patriotic oaths, fall into disorderly street-processions, constitutional unmilitary exclamations and hurrahings. On which account the Regiment Picardie, for one, has to be drawn out in the square of the barracks, here at Metz, and sharply harangued by the General himself; but expresses penitence.[^311]
 

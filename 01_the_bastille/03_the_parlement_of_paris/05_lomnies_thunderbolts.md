@@ -1,4 +1,4 @@
-# Loménie’s Thunderbolts.
+# Loménie’s Thunderbolts
 
 Arise, Loménie-Brienne: here is no case for “Letters of Jussion;” for faltering or compromise. Thou seest the whole loose *fluent* population of Paris (whatsoever is not solid, and fixed to work) inundating these outer courts, like a loud destructive deluge; the very Basoche of Lawyers’ Clerks talks sedition. The lower classes, in this duel of Authority with Authority, Greek throttling Greek, have ceased to respect the City-Watch: Police-satellites are marked on the back with chalk (the M signifies *mouchard*, spy); they are hustled, hunted like *feræ naturæ*. Subordinate rural Tribunals send messengers of congratulation, of adherence. Their Fountain of Justice is becoming a Fountain of Revolt. The Provincial Parlements look on, with intent eye, with breathless wishes, while their elder sister of Paris does battle: the whole Twelve are of one blood and temper; the victory of one is that of all.
 

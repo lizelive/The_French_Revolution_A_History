@@ -1,4 +1,4 @@
-# The Equal Diet.
+# The Equal Diet
 
 But why lingers Mounier; returns not with his Deputation? It is six, it is seven o’clock; and still no Mounier, no Acceptance pure and simple.
 

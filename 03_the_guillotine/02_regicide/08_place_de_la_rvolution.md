@@ -1,4 +1,4 @@
-# Place de la Révolution.
+# Place de la Révolution
 
 To this conclusion, then, hast thou come, O hapless Louis! The Son of Sixty Kings is to die on the Scaffold by form of law. Under Sixty Kings this same form of Law, form of Society, has been fashioning itself together, these thousand years; and has become, one way and other, a most strange Machine. Surely, if needful, it is also frightful this Machine; dead, blind; not what it should be; which, with swift stroke, or by cold slow torture, has wasted the lives and souls of innumerable men. And behold now a King himself, or say rather Kinghood in his person, is to expire here in cruel tortures;—like a Phalaris shut in the belly of his own red-heated Brazen Bull! It is ever so; and thou shouldst know it, O haughty tyrannous man: injustice breeds injustice; curses and falsehoods do verily “return always home,” wide as they may wander. Innocent Louis bears the sins of many generations: he too experiences that man’s tribunal is not in this Earth; that if he had no Higher one, it were not well with him.
 

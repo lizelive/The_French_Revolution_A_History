@@ -1,4 +1,4 @@
-# Windbags.
+# Windbags
 
 So marches the world, in this its Paper Age, or Era of Hope. Not without obstructions, war-explosions; which, however, heard from such distance, are little other than a cheerful marching-music. If indeed that dark living chaos of Ignorance and Hunger, five-and-twenty million strong, under your feet,—were to begin playing!
 

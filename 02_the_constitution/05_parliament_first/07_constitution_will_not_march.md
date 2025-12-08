@@ -1,4 +1,4 @@
-# Constitution will not march.
+# Constitution will not march
 
 To all which our poor Legislative, tied up by an unmarching Constitution, can oppose nothing, by way of remedy, but mere bursts of parliamentary eloquence! They go on, debating, denouncing, objurgating: loud weltering Chaos, which devours *itself.*
 

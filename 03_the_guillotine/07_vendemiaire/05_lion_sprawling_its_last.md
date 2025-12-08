@@ -1,4 +1,4 @@
-# Lion Sprawling its Last.
+# Lion Sprawling its Last
 
 Representative Carrier went to the Guillotine, in December last; protesting that he acted by orders. The Revolutionary Tribunal, after all it has devoured, has now only, as Anarchic things do, to devour itself. In the early days of May, men see a remarkable thing: Fouquier-Tinville pleading at the Bar once his own. He and his chief Jurymen, Leroi *August-Tenth*, Juryman Vilate, a Batch of Sixteen; pleading hard, protesting that they acted by orders: but pleading in vain. Thus men break the axe with which they have done hateful things; the axe itself having grown hateful. For the rest, Fouquier died hard enough: ‘Where are thy Batches?’ howled the People.—‘Hungry *canaille*,’ asked Fouquier, ‘is thy Bread cheaper, wanting them?’
 

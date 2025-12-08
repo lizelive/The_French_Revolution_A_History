@@ -1,4 +1,4 @@
-# O Richard, O my King.
+# O Richard, O my King
 
 For, alas, neither is the Townhall itself without misgivings. The Nether Sansculottic world has been suppressed hitherto: but then the Upper Court-world! Symptoms there are that the Œil-de-Bœuf is rallying.
 

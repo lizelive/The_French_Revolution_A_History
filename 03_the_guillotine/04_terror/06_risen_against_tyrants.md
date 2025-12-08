@@ -1,4 +1,4 @@
-# Risen against Tyrants.
+# Risen against Tyrants
 
 Against all which incalculable impediments, horrors and disasters, what can a Jacobin Convention oppose? The uncalculating Spirit of Jacobinism, and Sansculottic sans-formulistic Frenzy! Our Enemies press in on us, says Danton, but they shall not conquer us, ‘we will burn France to ashes rather, *nous brûlerons la France*.’
 

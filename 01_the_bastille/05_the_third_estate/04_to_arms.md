@@ -1,4 +1,4 @@
-# To Arms!
+# To Arms
 
 So hangs it, dubious, fateful, in the sultry days of July. It is the passionate printed *advice* of M. Marat, to abstain, of all things, from violence.[^168] Nevertheless the hungry poor are already burning Town Barriers, where Tribute on eatables is levied; getting clamorous for food.
 

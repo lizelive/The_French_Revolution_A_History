@@ -1,4 +1,4 @@
-# The Procession.
+# The Procession
 
 On the first Saturday of May, it is gala at Versailles; and Monday, fourth of the month, is to be a still greater day. The Deputies have mostly got thither, and sought out lodgings; and are now successively, in long well-ushered files, kissing the hand of Majesty in the Château. Supreme Usher de Brézé does not give the highest satisfaction: we cannot but observe that in ushering Noblesse or Clergy into the anointed Presence, he liberally opens *both* his folding-doors; and on the other hand, for members of the Third Estate opens only one! However, there is room to enter; Majesty has smiles for all.
 

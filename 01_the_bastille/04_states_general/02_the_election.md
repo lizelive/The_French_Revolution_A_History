@@ -1,4 +1,4 @@
-# The Election.
+# The Election
 
 Up, then, and be doing! The royal signal-word flies through France, as through vast forests the rushing of a mighty wind. At Parish Churches, in Townhalls, and every House of Convocation; by Bailliages, by Seneschalsies, in whatsoever form men convene; there, with confusion enough, are Primary Assemblies forming. To elect your Electors; such is the form prescribed: then to draw up your “Writ of Plaints and Grievances (*Cahier de plaintes et doléances*),” of which latter there is no lack.
 

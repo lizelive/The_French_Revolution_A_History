@@ -1,4 +1,4 @@
-# Je le jure.
+# Je le jure
 
 With these signs of the times, is it not surprising that the dominant feeling all over France was still continually Hope? O blessed Hope, sole boon of man; whereby, on his strait prison walls, are painted beautiful far-stretching landscapes; and into the night of very Death is shed holiest dawn! Thou art to all an indefeasible possession in this God’s-world: to the wise a sacred Constantine’s-banner, written on the eternal skies; under which they *shall* conquer, for the battle itself is victory: to the foolish some secular *mirage*, or shadow of still waters, painted on the parched Earth; whereby at least their dusty pilgrimage, if devious, becomes cheerfuller, becomes possible.
 

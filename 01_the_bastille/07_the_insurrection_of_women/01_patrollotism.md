@@ -1,4 +1,4 @@
-# Patrollotism.
+# Patrollotism
 
 No, Friends, this Revolution is not of the consolidating kind. Do not fires, fevers, sown seeds, chemical mixtures, men, events; all embodiments of Force that work in this miraculous Complex of Forces, named Universe,—go on *growing*, through their natural phases and developments, each according to its kind; reach their height, reach their visible decline; finally sink under, vanishing, and what we call *die?* They all grow; there is nothing but what grows, and shoots forth into its special expansion,—once give it leave to spring. Observe too that each grows with a rapidity proportioned, in general, to the madness and unhealthiness there is in it: slow regular growth, though this also ends in death, is what we name health and sanity.
 

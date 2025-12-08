@@ -1,4 +1,4 @@
-# In Fight.
+# In Fight
 
 Our Republic, by paper Decree, may be “One and Indivisible;” but what profits it while these things are? Federalists in the Senate, renegadoes in the Army, traitors everywhere! France, all in desperate recruitment since the Tenth of March, does not fly to the frontier, but only flies hither and thither. This defection of contemptuous diplomatic Dumouriez falls heavy on the fine-spoken high-sniffing *Hommes d’état*, whom he consorted with; forms a second epoch in their destinies.
 

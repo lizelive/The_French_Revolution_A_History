@@ -1,4 +1,4 @@
-# The Notables Again.
+# The Notables Again
 
 The universal prayer, therefore, is to be fulfilled! Always in days of national perplexity, when wrong abounded and help was not, this remedy of States-General was called for; by a Malesherbes, nay by a Fénelon;[^107] even Parlements calling for it were “escorted with blessings.” And now behold it is vouchsafed us; States-General shall verily be!
 

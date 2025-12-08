@@ -1,4 +1,4 @@
-# Printed Paper.
+# Printed Paper
 
 In such a practical France, let the theory of Perfectibility say what it will, discontents cannot be wanting: your promised Reformation is so indispensable; yet it comes not; who will begin it—with himself? Discontent with what is around us, still more with what is above us, goes on increasing; seeking ever new vents.
 

@@ -1,4 +1,4 @@
-# A Trilogy.
+# A Trilogy
 
 As all Delineation, in these ages, were it never so Epic, “speaking itself and not singing itself,” must either found on Belief and provable Fact, or have no foundation at all (nor except as floating cobweb any existence at all),—the Reader will perhaps prefer to take a glance with the very eyes of eye-witnesses; and see, in that way, for himself, how it was. Brave Jourgniac, innocent Abbé Sicard, judicious Advocate Maton, these, greatly compressing themselves, shall speak, each an instant. Jourgniac’s *Agony of Thirty-eight Hours* went through “above a hundred editions,” though intrinsically a poor work. Some portion of it may here go through above the hundred-and-first, for want of a better.
 

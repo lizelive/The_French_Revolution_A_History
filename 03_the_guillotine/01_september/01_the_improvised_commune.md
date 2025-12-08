@@ -1,4 +1,4 @@
-# The Improvised Commune.
+# The Improvised Commune
 
 Ye have roused her, then, ye Emigrants and Despots of the world; France is roused; long have ye been lecturing and tutoring this poor Nation, like cruel uncalled-for pedagogues, shaking over her your ferulas of fire and steel: it is long that ye have pricked and fillipped and affrighted her, there as she sat helpless in her dead cerements of a Constitution, you gathering in on her from all lands, with your armaments and plots, your invadings and truculent bullyings;—and lo now, ye have pricked her to the quick, and she is up, and her blood is up. The dead cerements are rent into cobwebs, and she fronts you in that terrible strength of Nature, which no man has measured, which goes down to Madness and Tophet: see now how ye will deal with her!
 

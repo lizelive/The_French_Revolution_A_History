@@ -1,4 +1,4 @@
-# Viaticum.
+# Viaticum
 
 For the present, however, the grand question with the Governors of France is: Shall extreme unction, or other ghostly viaticum (to Louis, not to France), be administered?
 

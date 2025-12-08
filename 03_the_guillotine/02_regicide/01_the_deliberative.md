@@ -1,4 +1,4 @@
-# The Deliberative.
+# The Deliberative
 
 France therefore has done two things very completely: she has hurled back her Cimmerian Invaders far over the marches; and likewise she has shattered her own internal Social Constitution, even to the minutest fibre of it, into wreck and dissolution. Utterly it is all altered: from King down to Parish Constable, all Authorities, Magistrates, Judges, persons that bore rule, have had, on the sudden, to alter themselves, so far as needful; or else, on the sudden, and not without violence, to be altered: a Patriot “Executive Council of Ministers,” with a Patriot Danton in it, and then a whole Nation and National Convention, have taken care of that. Not a Parish Constable, in the furthest hamlet, who has said *De Par le Roi*, and shewn loyalty, but must retire, making way for a new improved Parish Constable who can say *De par la République.*
 

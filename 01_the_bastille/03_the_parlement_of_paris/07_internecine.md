@@ -1,4 +1,4 @@
-# Internecine.
+# Internecine
 
 What a France, through these winter months of the year 1787! The very Œil-de-Bœuf is doleful, uncertain; with a general feeling among the Suppressed, that it were better to be in Turkey. The Wolf-hounds are suppressed, the Bear-hounds, Duke de Coigny, Duke de Polignac: in the Trianon little-heaven, her Majesty, one evening, takes Besenval’s arm; asks his candid opinion. The intrepid Besenval,—having, as he hopes, nothing of the sycophant in *him*,—plainly signifies that, with a Parlement in rebellion, and an Œil-de-Bœuf in suppression, the King’s Crown is in danger;—whereupon, singular to say, her Majesty, as if hurt, changed the subject, *et ne me parla plus de rien!*[^78]
 

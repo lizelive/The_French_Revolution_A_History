@@ -1,4 +1,4 @@
-# The Executive.
+# The Executive
 
 May we not conjecture therefore that round this grand enterprise of Making the Constitution there will, as heretofore, very strange embroilments gather, and questions and interests complicate themselves; so that after a few or even several months, the Convention will not have settled every thing? Alas, a whole tide of questions comes rolling, boiling; growing ever wider, without end! Among which, apart from this question of September and Anarchy, let us notice those, which emerge oftener than the others, and promise to become Leading Questions: of the Armies; of the Subsistences; thirdly, of the Dethroned King.
 

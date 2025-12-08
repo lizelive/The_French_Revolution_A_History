@@ -1,4 +1,4 @@
-# Inertia.
+# Inertia
 
 That exasperated France, in this same National Assembly of hers, has got something, nay something great, momentous, indispensable, cannot be doubted; yet still the question were: Specially *what?* A question hard to solve, even for calm onlookers at this distance; wholly insoluble to actors in the middle of it. The States-General, created and conflated by the passionate effort of the whole nation, is there as a thing high and lifted up. Hope, jubilating, cries aloud that it will prove a miraculous Brazen Serpent in the Wilderness; whereon whosoever looks, with faith and obedience, shall be healed of all woes and serpent-bites.
 

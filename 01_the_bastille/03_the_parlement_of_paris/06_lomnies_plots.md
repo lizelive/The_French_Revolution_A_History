@@ -1,4 +1,4 @@
-# Loménie’s Plots.
+# Loménie’s Plots
 
 Was ever unfortunate Chief Minister so bested as Loménie-Brienne? The reins of the State fairly in his hand these six months; and not the smallest motive-power (of Finance) to stir from the spot with, this way or that! He flourishes his whip, but advances not. Instead of ready-money, there is nothing but rebellious debating and recalcitrating.
 

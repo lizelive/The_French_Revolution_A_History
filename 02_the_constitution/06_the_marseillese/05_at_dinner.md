@@ -1,4 +1,4 @@
-# At Dinner.
+# At Dinner
 
 It was a bright day for Charenton, that 29th of the month, when the Marseillese Brethren actually came in sight. Barbaroux, Santerre and Patriots have gone out to meet the grim Wayfarers. Patriot clasps dusty Patriot to his bosom; there is footwashing and refection: “dinner of twelve hundred covers at the Blue Dial, *Cadran Bleu;*” and deep interior consultation, that one wots not of.[^492] Consultation indeed which comes to little; for Santerre, with an open purse, with a loud voice, has almost no head. Here however we repose this night: on the morrow is public entry into Paris.
 

@@ -1,4 +1,4 @@
-# Arrears at Nanci.
+# Arrears at Nanci
 
 We are to remark, however, that of all districts, this of Bouillé’s seems the inflammablest. It was always to Bouillé and Metz that Royalty would fly: Austria lies near; here more than elsewhere must the disunited People look over the borders, into a dim sea of Foreign Politics and Diplomacies, with hope or apprehension, with mutual exasperation.
 

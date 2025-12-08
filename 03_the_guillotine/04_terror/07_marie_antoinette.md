@@ -1,4 +1,4 @@
-# Marie-Antoinette.
+# Marie-Antoinette
 
 On Monday the Fourteenth of October, 1793, a Cause is pending in the Palais de Justice, in the new Revolutionary Court, such as these old stone-walls never witnessed: the Trial of Marie-Antoinette. The once brightest of Queens, now tarnished, defaced, forsaken, stands here at Fouquier Tinville’s Judgment-bar; answering for her life! The Indictment was delivered her last night.[^683] To such changes of human fortune what words are adequate? Silence alone is adequate.
 

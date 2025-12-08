@@ -1,4 +1,4 @@
-# Exeunt.
+# Exeunt
 
 But this Twentieth of September is otherwise a great day. For, observe, while Kellermann’s horse was flying blown from under him at the Mill of Valmy, our new National Deputies, that shall be a NATIONAL CONVENTION, are hovering and gathering about the Hall of the Hundred Swiss; with intent to constitute themselves!
 

@@ -1,4 +1,4 @@
-# Questionable.
+# Questionable
 
 Or is this same Age of Hope itself but a simulacrum; as Hope too often is? Cloud-vapour with rainbows painted on it, beautiful to see, to sail towards,—which hovers over Niagara Falls? In that case, victorious Analysis will have enough to do.
 

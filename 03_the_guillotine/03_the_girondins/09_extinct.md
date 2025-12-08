@@ -1,4 +1,4 @@
-# Extinct.
+# Extinct
 
 Accordingly, on Friday, the Thirty-first of May 1793, there comes forth into the summer sunlight one of the strangest scenes. Mayor Pache with Municipality arrives at the Tuileries Hall of Convention; sent for, Paris being in visible ferment; and gives the strangest news.
 

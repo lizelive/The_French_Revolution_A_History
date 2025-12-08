@@ -1,4 +1,4 @@
-# Grande Acceptation.
+# Grande Acceptation
 
 In the last nights of September, when the autumnal equinox is past, and grey September fades into brown October, why are the Champs Elysées illuminated; why is Paris dancing, and flinging fire-works? They are gala-nights, these last of September; Paris may well dance, and the Universe: the Edifice of the Constitution is completed! Completed; nay *revised*, to see that there was nothing insufficient in it; solemnly proferred to his Majesty; solemnly accepted by him, to the sound of cannon-salvoes, on the fourteenth of the month. And now by such illumination, jubilee, dancing and fire-working, do we joyously handsel the new Social Edifice, and first raise heat and reek there, in the name of Hope.
 

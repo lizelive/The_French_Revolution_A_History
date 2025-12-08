@@ -1,4 +1,4 @@
-# The Circular.
+# The Circular
 
 But the Constituted Authorities, all this while? The Legislative Assembly; the Six Ministers; the Townhall; Santerre with the National Guard?—It is very curious to think what a City is. Theatres, to the number of some twenty-three, were open every night during these prodigies: while right-arms here grew weary with slaying, right-arms there are twiddledeeing on melodious catgut; at the very instant when Abbé Sicard was clambering up his second pair of shoulders, three-men high, five hundred thousand human individuals were lying horizontal, as if nothing were amiss.
 

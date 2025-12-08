@@ -1,4 +1,4 @@
-# Brigands and Jalès.
+# Brigands and Jalès
 
 We shall have War, then; and on what terms! With an Executive “pretending,” really with less and less deceptiveness now, “to be dead;” casting even a wishful eye towards the enemy: on such terms we shall have War.
 

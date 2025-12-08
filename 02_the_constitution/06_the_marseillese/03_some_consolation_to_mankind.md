@@ -1,4 +1,4 @@
-# Some Consolation to Mankind.
+# Some Consolation to Mankind
 
 Of the Federation Feast itself we shall say almost nothing. There are Tents pitched in the Champ-de-Mars; tent for National Assembly; tent for Hereditary Representative,—who indeed is there too early, and has to wait long in it. There are Eighty-three symbolical Departmental Trees-of-Liberty; trees and *mais* enough: beautifullest of all these is one huge *mai*, hung round with effete Scutcheons, Emblazonries and Genealogy-books; nay better still, with Lawyers’-bags, “*sacs de procédure:*” which shall be burnt. The Thirty seat-rows of that famed Slope are again full; we have a bright Sun; and all is marching, streamering and blaring: but what avails it? Virtuous Mayor Pétion, whom Feuillantism had suspended, was reinstated only last night, by Decree of the Assembly. Men’s humour is of the sourest. Men’s hats have on them, written in chalk, “*Vive Pétion;*” and even, “Pétion or Death, *Pétion ou la Mort*.”
 

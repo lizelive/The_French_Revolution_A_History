@@ -1,4 +1,4 @@
-# Discrowned.
+# Discrowned
 
 But the question more pressing than all on the Legislator, as yet, is this third: What shall be done with King Louis?
 

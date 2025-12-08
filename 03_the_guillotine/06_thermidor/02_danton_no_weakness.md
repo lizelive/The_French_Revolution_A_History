@@ -1,4 +1,4 @@
-# Danton, No Weakness.
+# Danton, No Weakness
 
 Danton, meanwhile, has been pressingly sent for from Arcis: he must return instantly, cried Camille, cried Phélippeaux and Friends, who scented danger in the wind. Danger enough! A Danton, a Robespierre, chief-products of a victorious Revolution, are now arrived in immediate front of one another; must ascertain how they will live together, rule together. One conceives easily the deep mutual incompatibility that divided these two: with what terror of feminine hatred the poor seagreen Formula looked at the monstrous colossal Reality, and grew greener to behold him;—the Reality, again, struggling to think no ill of a chief-product of the Revolution; yet feeling at bottom that such chief-product was little other than a chief wind-bag, blown large by Popular air; not a man with the heart of a man, but a poor spasmodic incorruptible pedant, with a logic-formula instead of heart; of Jesuit or Methodist-Parson nature; full of sincere-cant, incorruptibility, of virulence, poltroonery; barren as the east-wind! Two such chief-products are too much for one Revolution.
 

@@ -1,4 +1,4 @@
-# Easter at Saint-Cloud.
+# Easter at Saint-Cloud
 
 The French Monarchy may now therefore be considered as, in all human probability, lost; as struggling henceforth in blindness as well as weakness, the last light of reasonable guidance having gone out. What remains of resources their poor Majesties will waste still further, in uncertain loitering and wavering. Mirabeau himself had to complain that they only gave him half confidence, and always had some plan within his plan. Had they fled frankly with him, to Rouen or anywhither, long ago! They may fly now with chance immeasurably lessened; which will go on lessening towards absolute zero. Decide, O Queen; poor Louis can decide nothing: execute this Flight-project, or at least abandon it. Correspondence with Bouillé there has been enough; what profits consulting, and hypothesis, while all around is in fierce activity of practice? The Rustic sits waiting till the river run dry: alas with you it is not a common river, but a Nile Inundation; snow melting in the unseen mountains; till all, and you where you sit, be submerged.
 

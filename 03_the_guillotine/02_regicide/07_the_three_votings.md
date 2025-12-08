@@ -1,4 +1,4 @@
-# The Three Votings.
+# The Three Votings
 
 Is Louis Capet guilty of conspiring against Liberty? Shall our Sentence be itself final, or need ratifying by Appeal to the People? If guilty, what Punishment? This is the form agreed to, after uproar and “several hours of tumultuous indecision:” these are the Three successive Questions, whereon the Convention shall now pronounce. Paris floods round their Hall; multitudinous, many sounding. Europe and all Nations listen for their answer. Deputy after Deputy shall answer to his name: Guilty or Not guilty?
 

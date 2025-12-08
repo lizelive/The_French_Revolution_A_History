@@ -1,4 +1,4 @@
-# La Cabarus.
+# La Cabarus
 
 How, above all, shall a poor National Convention, withstand it? In this poor National Convention, broken, bewildered by long terror, perturbations, and guillotinement, there is no Pilot, there is not now even a Danton, who could undertake to steer you anywhither, in such press of weather. The utmost a bewildered Convention can do, is to veer, and trim, and try to keep itself steady: and rush, undrowned, before the wind. Needless to struggle; to fling helm a-lee, and make ’*bout ship!* A bewildered Convention sails not in the teeth of the wind; but is rapidly blown round again. So strong is the wind, we say; and so changed; blowing fresher and fresher, as from the sweet South-West; your devastating North-Easters, and wild tornado-gusts of Terror, blown utterly out! All Sansculottic things are passing away; all things are becoming Culottic.
 

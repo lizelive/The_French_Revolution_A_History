@@ -1,4 +1,4 @@
-# To fly or not to fly.
+# To fly or not to fly
 
 The truth is Royalism sees itself verging towards sad extremities; nearer and nearer daily. From over the Rhine it comes asserted that the King in his Tuileries is not free: this the poor King may contradict, with the official mouth, but in his heart feels often to be undeniable. Civil Constitution of the Clergy; Decree of ejectment against Dissidents from it: not even to this latter, though almost his conscience rebels, can he say “Nay; but, after two months’ hesitating, signs this also. It was on January 21st,” of this 1790, that he signed it; to the sorrow of his poor/ heart yet, on *another* Twenty-first of January! Whereby come Dissident ejected Priests; unconquerable Martyrs according to some, incurable chicaning Traitors according to others. And so there has arrived what we once foreshadowed: with Religion, or with the Cant and Echo of Religion, all France is rent asunder in a new rupture of continuity; complicating, embittering all the older;—to be cured only, by stern surgery, in La Vendée!
 

@@ -1,4 +1,4 @@
-# The Fourth Estate.
+# The Fourth Estate
 
 Pamphleteering opens its abysmal throat wider and wider: never to close more. Our Philosophes, indeed, rather withdraw; after the manner of Marmontel, “retiring in disgust the first day.” Abbé Raynal, grown gray and quiet in his Marseilles domicile, is little content with this work; the last literary act of the man will again be an act of rebellion: an indignant *Letter to the Constituent Assembly;* answered by “the order of the day.” Thus also Philosophe Morellet puckers discontented brows; being indeed threatened in his benefices by that Fourth of August: it is clearly going too far. How astonishing that those “haggard figures in woollen jupes” would not rest as satisfied with Speculation, and victorious Analysis, as we!
 

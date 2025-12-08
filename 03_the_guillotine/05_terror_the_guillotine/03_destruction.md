@@ -1,4 +1,4 @@
-# Destruction.
+# Destruction
 
 The suspect may well tremble; but how much more the open rebels;—the Girondin Cities of the South! Revolutionary Army is gone forth, under Ronsin the Playwright; six thousand strong; in “red nightcap, in tricolor waistcoat, in black-shag trousers, black-shag spencer, with enormous moustachioes, enormous sabre,—in *carmagnole complète;*”[^702] and has portable guillotines. Representative Carrier has got to Nantes, by the edge of blazing La Vendée, which Rossignol has literally set on fire: Carrier will try what captives you make, what accomplices they have, Royalist or Girondin: his guillotine goes always, *va toujours;* and his wool-capped “Company of Marat.” Little children are guillotined, and aged men. Swift as the machine is, it will not serve; the Headsman and all his valets sink, worn down with work; declare that the human muscles can no more.[^703] Whereupon you must try fusillading; to which perhaps still frightfuller methods may succeed.
 

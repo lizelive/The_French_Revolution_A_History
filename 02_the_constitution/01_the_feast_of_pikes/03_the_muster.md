@@ -1,4 +1,4 @@
-# The Muster.
+# The Muster
 
 With famine and a Constitutional theory of defective verbs going on, all other excitement is conceivable. A universal shaking and sifting of French Existence this is: in the course of which, for one thing, what a multitude of low-lying figures are sifted to the top, and set busily to work there!
 

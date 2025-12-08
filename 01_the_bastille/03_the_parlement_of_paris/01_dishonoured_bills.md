@@ -1,4 +1,4 @@
-# Dishonoured Bills.
+# Dishonoured Bills
 
 While the unspeakable confusion is everywhere weltering within, and through so many cracks in the surface sulphur-smoke is issuing, the question arises: Through what crevice will the main Explosion carry itself? Through which of the old craters or chimneys; or must it, at once, form a new crater for itself? In every Society are such chimneys, are Institutions serving as such: even Constantinople is not without its safety-valves; there too Discontent can vent itself,—in material fire; by the number of nocturnal conflagrations, or of hanged bakers, the Reigning Power can read the signs of the times, and change course according to these.
 

@@ -1,4 +1,4 @@
-# Maurepas.
+# Maurepas
 
 But now, among French hopes, is not that of old M. de Maurepas one of the best-grounded; who hopes that he, by dexterity, shall contrive to continue Minister? Nimble old man, who for all emergencies has his light jest; and ever in the worst confusion will emerge, cork-like, unsunk! Small care to him is Perfectibility, Progress of the Species, and *Astræa Redux:* good only, that a man of light wit, verging towards fourscore, can in the seat of authority feel himself important among men. Shall we call him, as haughty Châteauroux was wont of old, “*M. Faquinet* (Diminutive of Scoundrel)”? In courtier dialect, he is now named “the Nestor of France;” such governing Nestor as France has.
 

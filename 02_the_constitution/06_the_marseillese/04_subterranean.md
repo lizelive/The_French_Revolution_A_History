@@ -1,4 +1,4 @@
-# Subterranean.
+# Subterranean
 
 But judge if there was comfort in this to the Sections all sitting permanent; deliberating how a National Executive could be put in action!
 

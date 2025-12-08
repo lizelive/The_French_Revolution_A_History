@@ -1,4 +1,4 @@
-# The Menads.
+# The Menads
 
 If Voltaire once, in splenetic humour, asked his countrymen: ‘But you, *Gualches*, what have you invented?’ they can now answer: The Art of Insurrection. It was an art needed in these last singular times: an art, for which the French nature, so full of vehemence, so free from depth, was perhaps of all others the fittest.
 

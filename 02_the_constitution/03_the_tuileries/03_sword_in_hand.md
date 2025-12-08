@@ -1,4 +1,4 @@
-# Sword in Hand.
+# Sword in Hand
 
 On such wonderful basis, however, has Law, Royalty, Authority, and whatever yet exists of visible Order, to maintain itself, while it can. Here, as in that Commixture of the Four Elements did the Anarch Old, has an august Assembly spread its pavilion; curtained by the dark infinite of discords; founded on the wavering bottomless of the Abyss; and keeps continual hubbub. Time is around it, and Eternity, and the Inane; and it does what it can, what is given it to do.
 

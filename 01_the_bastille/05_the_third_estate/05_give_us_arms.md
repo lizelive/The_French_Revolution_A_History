@@ -1,4 +1,4 @@
-# Give us Arms.
+# Give us Arms
 
 On Monday the huge City has awoke, not to its week-day industry: to what a different one! The working man has become a fighting man; has one want only: that of arms. The industry of all crafts has paused;—except it be the smith’s, fiercely hammering pikes; and, in a faint degree, the kitchener’s, cooking off-hand victuals; for *bouche va toujours*. Women too are sewing cockades;—not now of green, which being D’Artois colour, the Hôtel-de-Ville has had to interfere in it; but of *red* and *blue*, our old Paris colours: these, once based on a ground of constitutional *white*, are the famed TRICOLOR,—which (if Prophecy err not) “will go round the world.”
 

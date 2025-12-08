@@ -1,4 +1,4 @@
-# Let us march.
+# Let us march
 
 But to our minds the notablest of all these moving phenomena, is that of Barbaroux’s “Six Hundred Marseillese who know how to die.”
 

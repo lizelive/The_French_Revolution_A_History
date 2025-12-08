@@ -1,4 +1,4 @@
-# The Traitor.
+# The Traitor
 
 But Dumouriez, with his fugitive Host, with his King *Ludovicus* or King *Philippus?* There lies the crisis; there hangs the question: Revolution Prodigy, or Counter-Revolution?—One wide shriek covers that North-East region. Soldiers, full of rage, suspicion and terror, flock hither and thither; Dumouriez the many-counselled, never off horseback, knows now no counsel that were not worse than none: the counsel, namely, of joining himself with Cobourg; marching to Paris, extinguishing Jacobinism, and, with some new King Ludovicus or King Philippus, resting the Constitution of 1791![^633]
 

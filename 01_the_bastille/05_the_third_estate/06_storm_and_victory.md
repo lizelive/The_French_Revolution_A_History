@@ -1,4 +1,4 @@
-# Storm and Victory.
+# Storm and Victory
 
 But, to the living and the struggling, a new, Fourteenth morning dawns. Under all roofs of this distracted City, is the nodus of a drama, not untragical, crowding towards solution. The bustlings and preparings, the tremors and menaces; the tears that fell from old eyes! This day, my sons, ye shall quit you like men. By the memory of your fathers’ wrongs, by the hope of your children’s rights! Tyranny impends in red wrath: help for you is none if not in your own right hands. This day ye must do or die.
 

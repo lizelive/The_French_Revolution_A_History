@@ -1,4 +1,4 @@
-# The Wakeful.
+# The Wakeful
 
 Sleep who will, cradled in hope and short vision, like Lafayette, “who always in the danger done sees the last danger that will threaten him,”—Time is not sleeping, nor Time’s seedfield.
 

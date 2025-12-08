@@ -1,4 +1,4 @@
-# The Twenty-two.
+# The Twenty-two
 
 Whom next, O Tinville? The next are of a different colour: our poor Arrested Girondin Deputies. What of them could still be laid hold of; our Vergniaud, Brissot, Fauchet, Valazé, Gensonné; the once flower of French Patriotism, Twenty-two by the tale: *hither*, at Tinville’s Bar, onward from “safeguard of the French People,” from confinement in the Luxembourg, imprisonment in the Conciergerie, have they now, by the course of things, arrived. Fouquier Tinville must give what account of them he can.
 

@@ -1,4 +1,4 @@
-# Death.
+# Death
 
 In the early days of November, there is one transient glimpse of things that is to be noted: the last transit to his long home of Philippe d’Orléans Egalité. Philippe was “decreed accused,” along with the Girondins, much to his and their surprise; but not tried along with them. They are doomed and dead, some three days, when Philippe, after his long half-year of durance at Marseilles, arrives in Paris. It is, as we calculate, the third of November 1793.
 

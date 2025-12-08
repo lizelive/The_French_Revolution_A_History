@@ -1,4 +1,4 @@
-# Astræa Redux.
+# Astræa Redux
 
 A paradoxical philosopher, carrying to the uttermost length that aphorism of Montesquieu’s, “Happy the people whose annals are tiresome,” has said, “Happy the people whose annals are vacant.” In which saying, mad as it looks, may there not still be found some grain of reason? For truly, as it has been written, “Silence is divine,” and of Heaven; so in all earthly things too there is a silence which is better than any speech. Consider it well, the Event, the thing which can be spoken of and recorded, is it not, in all cases, some disruption, some solution of continuity? Were it even a glad Event, it involves change, involves loss (of active Force); and so far, either in the past or in the present, is an irregularity, a disease. Stillest perseverance were our blessedness; not dislocation and alteration,—could they be avoided.
 

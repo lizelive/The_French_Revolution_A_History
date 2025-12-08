@@ -1,4 +1,4 @@
-# Loménie’s Death-throes.
+# Loménie’s Death-throes
 
 On the morrow, which is the 3rd of May, 1788, an astonished Parlement sits convoked; listens speechless to the speech of D’Espréménil, unfolding the infinite misdeed. Deed of treachery; of unhallowed darkness, such as Despotism loves! Denounce it, O Parlement of Paris; awaken France and the Universe; roll what thunder-barrels of forensic eloquence thou hast: with thee too it is verily Now or never!
 

@@ -1,4 +1,4 @@
-# Like a Thunder-Cloud.
+# Like a Thunder-Cloud
 
 But the grand, and indeed substantially primary and generic aspect of the Consummation of Terror remains still to be looked at; nay blinkard History has for most part all but *over*looked this aspect, the soul of the whole: that which makes it terrible to the Enemies of France. Let Despotism and Cimmerian Coalitions consider. All French men and French things are in a State of Requisition; Fourteen Armies are got on foot; Patriotism, with all that it has of faculty in heart or in head, in soul or body or breeches-pocket, is rushing to the frontiers, to prevail or die! Busy sits Carnot, in *Salut Public;* busy for his share, in “organising victory.” Not swifter pulses that Guillotine, in dread systole-diastole in the Place de la Révolution, than smites the Sword of Patriotism, smiting Cimmeria back to its own borders, from the sacred soil.
 

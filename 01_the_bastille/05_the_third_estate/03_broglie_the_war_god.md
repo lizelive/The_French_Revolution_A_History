@@ -1,4 +1,4 @@
-# Broglie the War-God.
+# Broglie the War-God
 
 The Court feels indignant that it is conquered; but what then? Another time it will do better. Mercury descended in vain; now has the time come for Mars.—The gods of the Œil-de-Bœuf have withdrawn into the darkness of their cloudy Ida; and sit there, shaping and forging what may be needful, be it “billets of a new National Bank,” munitions of war, or things forever inscrutable to men.
 

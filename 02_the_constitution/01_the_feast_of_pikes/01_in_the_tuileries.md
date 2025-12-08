@@ -1,4 +1,4 @@
-# In the Tuileries.
+# In the Tuileries
 
 The victim having once got his stroke-of-grace, the catastrophe can be considered as almost come. There is small interest now in watching his long low moans: notable only are his sharper agonies, what convulsive struggles he may take to cast the torture off from him; and then finally the last departure of life itself, and how he lies extinct and ended, either wrapt like Cæsar in decorous mantle-folds, or unseemly sunk together, like one that had not the force even to die.
 

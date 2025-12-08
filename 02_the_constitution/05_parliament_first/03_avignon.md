@@ -1,4 +1,4 @@
-# Avignon.
+# Avignon
 
 But quitting generalities, what strange Fact is this, in the far South-West, towards which the eyes of all men do now, in the end of October, bend themselves? A tragical combustion, long smoking and smouldering unluminous, has now burst into flame there.
 

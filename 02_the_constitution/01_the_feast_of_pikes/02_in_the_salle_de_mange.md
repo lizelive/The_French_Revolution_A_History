@@ -1,4 +1,4 @@
-# In the Salle de Manége.
+# In the Salle de Manége
 
 To believing Patriots, however, it is now clear, that the Constitution will march, *marcher*,—had it once legs to stand on. Quick, then, ye Patriots, bestir yourselves, and make it; shape legs for it! In the *Archevêché*, or Archbishop’s Palace, his Grace himself having fled; and afterwards in the Riding-hall, named Manege, close on the Tuileries: there does a National Assembly apply itself to the miraculous work. Successfully, had there been any heaven-scaling Prometheus among them; not successfully since there was none! There, in noisy debate, for the sessions are occasionally “scandalous,” and as many as three speakers have been seen in the Tribune at once,—let us continue to fancy it wearing the slow months.
 

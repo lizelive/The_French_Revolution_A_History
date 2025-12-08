@@ -1,4 +1,4 @@
-# Grilled Herrings.
+# Grilled Herrings
 
 So dies Sansculottism, the *body* of Sansculottism, or is changed. Its ragged Pythian Carmagnole-dance has transformed itself into a Pyrrhic, into a dance of Cabarus Balls. Sansculottism is dead; extinguished by new *isms* of that kind, which were its own natural progeny; and is buried, we may say, with such deafening jubilation and disharmony of funeral-knell on their part, that only after some half century or so does one begin to learn clearly why it ever was alive.
 

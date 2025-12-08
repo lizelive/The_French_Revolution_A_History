@@ -1,4 +1,4 @@
-# In Civil War.
+# In Civil War
 
 But during these same hours, another guillotine is at work, on another: Charlotte, for the Girondins, dies at Paris today; Chalier, by the Girondins, dies at Lyons tomorrow.
 

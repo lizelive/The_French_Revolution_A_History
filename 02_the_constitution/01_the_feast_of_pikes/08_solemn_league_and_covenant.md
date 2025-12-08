@@ -1,4 +1,4 @@
-# Solemn League and Covenant.
+# Solemn League and Covenant
 
 Such dim masses, and specks of even deepest black, work in that white-hot glow of the French mind, now wholly in fusion, and *con*fusion. Old women here swearing their ten children on the new Evangel of Jean Jacques; old women there looking up for Favras’ Heads in the celestial Luminary: these *are* preternatural signs, prefiguring somewhat.
 

@@ -1,4 +1,4 @@
-# Growing Shrill.
+# Growing Shrill
 
 On the whole, one cannot say that the Girondins are wanting to themselves, so far as good-will might go. They prick assiduously into the sore-places of the Mountain; from principle, and also from jesuitism.
 

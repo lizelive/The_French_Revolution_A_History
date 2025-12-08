@@ -1,4 +1,4 @@
-# The Steeples at Midnight.
+# The Steeples at Midnight
 
 For, in truth, the Insurrection is just about ripe. Thursday is the ninth of the month August: if Forfeiture be not pronounced by the Legislature that day, we must pronounce it ourselves.
 

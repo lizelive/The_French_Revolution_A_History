@@ -1,4 +1,4 @@
-# Mercury de Brézé.
+# Mercury de Brézé
 
 Now surely were the time for a “god from the machine;” there is a *nodus* worthy of one. The only question is, Which god? Shall it be Mars de Broglie, with his hundred pieces of cannon?—Not yet, answers prudence; so soft, irresolute is King Louis. Let it be Messenger *Mercury*, our Supreme Usher de Brézé.
 

@@ -1,4 +1,4 @@
-# Inspector Malseigne.
+# Inspector Malseigne
 
 Of Inspector Malseigne we discern, by direct light, that he is “of Herculean stature;” and infer, with probability, that he is of truculent moustachioed aspect,—for *Royalist* Officers now leave the upper lip unshaven; that he is of indomitable bull-heart; and also, unfortunately, of thick bull-head.
 

@@ -1,4 +1,4 @@
-# The Whiff of Grapeshot.
+# The Whiff of Grapeshot
 
 In fact, what can be more natural, one may say inevitable, as a Post-Sansculottic transitionary state, than even this? Confused wreck of a Republic of the Poverties, which ended in Reign of Terror, is arranging itself into such composure as it can. Evangel of Jean-Jacques, and most other Evangels, becoming incredible, what is there for it but return to the old Evangel of Mammon? *Contrat-Social* is true or untrue, Brotherhood is Brotherhood or Death; but money always will buy money’s worth: in the wreck of human dubitations, this remains indubitable, that Pleasure is pleasant. Aristocracy of Feudal Parchment has passed away with a mighty rushing; and now, by a natural course, we arrive at Aristocracy of the Moneybag. It is the course through which all European Societies are at this hour travelling. Apparently a still baser sort of Aristocracy? An infinitely baser; the basest yet known!
 

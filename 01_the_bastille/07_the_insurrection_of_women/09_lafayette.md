@@ -1,4 +1,4 @@
-# Lafayette.
+# Lafayette
 
 Towards midnight lights flare on the hill; Lafayette’s lights! The roll of his drums comes up the Avenue de Versailles. With peace, or with war? Patience, friends! With neither. Lafayette is come, but not yet the catastrophe.
 

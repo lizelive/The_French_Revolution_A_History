@@ -1,4 +1,4 @@
-# Attitude.
+# Attitude
 
 But in Paris, at six in the morning; when some Patriot Deputy, warned by a billet, awoke Lafayette, and they went to the Tuileries?—Imagination may paint, but words cannot, the surprise of Lafayette; or with what bewilderment helpless Gouvion rolled glassy Argus’s eyes, discerning now that his false Chambermaid told true!
 

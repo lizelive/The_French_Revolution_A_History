@@ -1,4 +1,4 @@
-# The Tumbrils.
+# The Tumbrils
 
 Next week, it is still but the 10th of April, there comes a new Nineteen; Chaumette, Gobel, Hébert’s Widow, the Widow of Camille: these also roll their fated journey; black Death devours them. Mean Hébert’s Widow was weeping, Camille’s Widow tried to speak comfort to her. O ye kind Heavens, azure, beautiful, eternal behind your tempests and Time-clouds, is there not pity for all! Gobel, it seems, was repentant; he begged absolution of a Priest; did as a Gobel best could. For Anaxagoras Chaumette, the sleek head now stript of its *bonnet rouge*, what hope is there? Unless Death *were* “an eternal sleep?” Wretched Anaxagoras, God shall judge thee, not I.
 

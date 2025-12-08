@@ -1,4 +1,4 @@
-# Not a Revolt.
+# Not a Revolt
 
 Why dwell on what follows? Hulin’s *foi d’officier* should have been kept, but could not. The Swiss stand drawn up; disguised in white canvas smocks; the Invalides without disguise; their arms all piled against the wall. The first rush of victors, in ecstacy that the death-peril is passed, “leaps joyfully on their necks;” but new victors rush, and ever new, also in ecstacy not wholly of joy. As we said, it was a living deluge, plunging headlong; had not the Gardes Françaises, in their cool military way, “wheeled round with arms levelled,” it would have plunged suicidally, by the hundred or the thousand, into the Bastille-ditch.
 

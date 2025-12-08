@@ -1,4 +1,4 @@
-# Charlotte Corday.
+# Charlotte Corday
 
 In the leafy months of June and July, several French Departments germinate a set of rebellious *paper*-leaves, named Proclamations, Resolutions, Journals, or Diurnals “of the Union for Resistance to Oppression.” In particular, the Town of Caen, in Calvados, sees its paper-leaf of *Bulletin de Caen* suddenly bud, suddenly establish itself as Newspaper there; under the Editorship of Girondin National Representatives!
 

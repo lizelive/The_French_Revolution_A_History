@@ -1,4 +1,4 @@
-# Clubbism.
+# Clubbism
 
 Where the heart is full, it seeks, for a thousand reasons, in a thousand ways, to impart itself. How sweet, indispensable, in such cases, is fellowship; soul mystically strengthening soul! The meditative Germans, some think, have been of opinion that Enthusiasm in the general means simply excessive Congregating—*Schwärmerey*, or *Swarming*. At any rate, do we not see glimmering half-red embers, if laid *together*, get into the brightest white glow?
 

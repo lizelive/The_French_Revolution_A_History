@@ -1,4 +1,4 @@
-# Count Fersen.
+# Count Fersen
 
 Royalty, in fact, should, by this time, be far on with its preparations. Unhappily much preparation is needful: could a Hereditary Representative be carried in leather *vache*, how easy were it! But it is not so.
 

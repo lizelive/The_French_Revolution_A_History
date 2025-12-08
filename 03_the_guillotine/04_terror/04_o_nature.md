@@ -1,4 +1,4 @@
-# O Nature.
+# O Nature
 
 But looking more specially into Paris City, what is this that History, on the 10th of August, Year One of Liberty, “by old-style, year 1793,” discerns there? Praised be the Heavens, a new Feast of Pikes!
 

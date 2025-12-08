@@ -1,4 +1,4 @@
-# Sword of Sharpness.
+# Sword of Sharpness
 
 In fact it is something quite other than paper theorems, it is iron and audacity that France now needs.
 

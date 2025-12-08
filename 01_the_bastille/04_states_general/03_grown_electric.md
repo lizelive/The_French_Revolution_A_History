@@ -1,4 +1,4 @@
-# Grown Electric.
+# Grown Electric
 
 But now also National Deputies from all ends of France are in Paris, with their commissions, what they call pouvoirs, or powers, in their pockets; inquiring, consulting; looking out for lodgings at Versailles. The States-General shall open there, if not on the First, then surely on the Fourth of May, in grand procession and gala. The *Salle des Menus* is all new-carpentered, bedizened for them; their very costume has been fixed; a grand controversy which there was, as to “slouch-hats or slouched-hats,” for the Commons Deputies, has got as good as adjusted. Ever new strangers arrive; loungers, miscellaneous persons, officers on furlough,—as the worthy Captain Dampmartin, whom we hope to be acquainted with: these also, from all regions, have repaired hither, to see what is toward. Our Paris Committees, of the Sixty Districts, are busier than ever; it is now too clear, the Paris Elections will be late.
 

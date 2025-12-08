@@ -1,4 +1,4 @@
-# Journalism.
+# Journalism
 
 As for Constitutionalism, with its National Guards, it is doing what it can; and has enough to do: it must, as ever, with one hand wave persuasively, repressing Patriotism; and keep the other clenched to menace Royalty plotters. A most delicate task; requiring tact.
 

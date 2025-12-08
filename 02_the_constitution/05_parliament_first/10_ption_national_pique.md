@@ -1,4 +1,4 @@
-# Pétion-National-Pique.
+# Pétion-National-Pique
 
 And yet, how, on dark bottomless Cataracts there plays the foolishest fantastic-coloured spray and shadow; hiding the Abyss under vapoury rainbows! Alongside of this discussion as to Austrian-Prussian War, there goes on no less but more vehemently a discussion, Whether the Forty or Two-and-forty Swiss of Château-Vieux shall be liberated from the Brest Gallies? And then, Whether, being liberated, they shall have a public Festival, or only private ones?
 

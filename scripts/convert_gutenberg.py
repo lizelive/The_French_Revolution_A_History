@@ -51,8 +51,11 @@ class Chapter:
     def to_markdown(self) -> str:
         """Convert chapter to markdown format."""
         lines = []
-        # Title as H1
-        lines.append(f"# {self.title}")
+        # Title as H1 — remove trailing punctuation from the header only
+        # to avoid `MD026 Trailing punctuation in header` while preserving
+        # the original title text in the chapter content if needed.
+        header_title = re.sub(r'[\:\;\.,!\?\-–—\s]+$', '', self.title)
+        lines.append(f"# {header_title}")
 
         # One blank line after title
         lines.append("")

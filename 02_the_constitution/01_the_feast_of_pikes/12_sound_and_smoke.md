@@ -1,4 +1,4 @@
-# Sound and Smoke.
+# Sound and Smoke
 
 And so now, in spite of plotting Aristocrats, lazy hired spademen, and almost of Destiny itself (for there has been much rain), the Champ-de-Mars, on the 13th of the month is fairly ready; trimmed, rammed, buttressed with firm masonry; and Patriotism can stroll over it admiring; and as it were rehearsing, for in every head is some unutterable image of the morrow. Pray Heaven there be not clouds. Nay what far worse cloud is this, of a misguided Municipality that talks of admitting Patriotism, to the solemnity, by tickets! Was it by tickets we were admitted to the work; and to what brought the work? Did we take the Bastille by tickets? A misguided Municipality sees the error; at late midnight, rolling drums announce to Patriotism starting half out of its bed-clothes, that it is to be ticketless. Pull down thy night-cap therefore; and, with demi-articulate grumble, significant of several things, go pacified to sleep again. Tomorrow is Wednesday morning; unforgetable among the *fasti* of the world.
 

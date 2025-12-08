@@ -1,4 +1,4 @@
-# The Lanterne.
+# The Lanterne
 
 The Fall of the Bastille may be said to have shaken all France to the deepest foundations of its existence. The rumour of these wonders flies every where: with the natural speed of Rumour; with an effect thought to be preternatural, produced by plots. Did d’Orléans or Laclos, nay did Mirabeau (not overburdened with money at this time) send riding Couriers out from Paris; to gallop “on all radii,” or highways, towards all points of France? It is a miracle, which no penetrating man will call in question.[^192]
 

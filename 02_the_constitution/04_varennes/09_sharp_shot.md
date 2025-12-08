@@ -1,4 +1,4 @@
-# Sharp Shot.
+# Sharp Shot
 
 In regard to all which, this most pressing question arises: What is to be done with it? ‘Depose it!’ resolutely answer Robespierre and the thoroughgoing few. For truly, with a King who runs away, and needs to be watched in his very bedroom that he may stay and govern you, what other reasonable thing can be done? Had Philippe d’Orléans not been a *caput mortuum!* But of him, known as one defunct, no man now dreams. ‘Depose it not; say that it is inviolable, that it was spirited away, was *enlevé;* at any cost of sophistry and solecism, reestablish it!’ so answer with loud vehemence all manner of Constitutional Royalists; as all your Pure Royalists do naturally likewise, with low vehemence, and rage compressed by fear, still more passionately answer. Nay Barnave and the two Lameths, and what will follow them, do likewise answer so. Answer, with their whole might: terror-struck at the unknown Abysses on the verge of which, driven thither by themselves mainly, all now reels, ready to plunge.
 

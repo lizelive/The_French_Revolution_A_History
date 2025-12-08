@@ -1,4 +1,4 @@
-# The New Berline.
+# The New Berline
 
 But scouts all this while and aide-de-camps, have flown forth faster than the leathern Diligences. Young Romœuf, as we said, was off early towards Valenciennes: distracted Villagers seize him, as a traitor with a finger of his own in the plot; drag him back to the Townhall; to the National Assembly, which speedily grants a new passport. Nay now, that same scarecrow of an Herb-merchant with his ass has bethought him of the grand new Berline seen in the Wood of Bondy; and delivered evidence of it:[^382] Romœuf, furnished with new passport, is sent forth with double speed on a hopefuller track; by Bondy, Claye, and Châlons, towards Metz, to track the new Berline; and gallops *à franc étrier*.
 

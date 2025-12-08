@@ -1,4 +1,4 @@
-# No Sugar.
+# No Sugar
 
 Such are our inward troubles; seen in the Cities of the South; extant, seen or unseen, in all cities and districts, North as well as South. For in all are Aristocrats, more or less malignant; watched by Patriotism; which again, being of various shades, from light Fayettist-Feuillant down to deep-sombre Jacobin, has to watch *itself!*
 

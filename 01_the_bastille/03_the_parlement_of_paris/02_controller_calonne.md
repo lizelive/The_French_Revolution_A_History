@@ -1,4 +1,4 @@
-# Controller Calonne.
+# Controller Calonne
 
 Under such circumstances of *tristesse*, obstruction and sick langour, when to an exasperated Court it seems as if fiscal genius had departed from among men, what apparition could be welcomer than that of M. de Calonne? Calonne, a man of indisputable genius; even fiscal genius, more or less; of experience both in managing Finance and Parlements, for he has been Intendant at Metz, at Lille; King’s Procureur at Douai. A man of weight, connected with the moneyed classes; of unstained name,—if it were not some peccadillo (of showing a Client’s Letter) in that old D’Aiguillon-Lachalotais business, as good as forgotten now. He has kinsmen of heavy purse, felt on the Stock Exchange. Our Foulons, Berthiers intrigue for him:—old Foulon, who has now nothing to do but intrigue; who is known and even seen to be what they call a scoundrel; but of unmeasured wealth; who, from Commissariat-clerk which he once was, may hope, some think, if the game go right, to be Minister himself one day.
 

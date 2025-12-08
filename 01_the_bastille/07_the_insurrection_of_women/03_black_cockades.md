@@ -1,4 +1,4 @@
-# Black Cockades.
+# Black Cockades
 
 But fancy what effect this Thyestes Repast and trampling on the National Cockade, must have had in the *Salle des Menus;* in the famishing Bakers’-queues at Paris! Nay such Thyestes Repasts, it would seem, continue. Flandre has given its Counter-Dinner to the Swiss and Hundred Swiss; then on Saturday there has been another.
 

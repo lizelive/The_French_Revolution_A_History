@@ -1,4 +1,4 @@
-# At Versailles.
+# At Versailles
 
 But already Pallas Athene (in the shape of Demoiselle Théroigne) is busy with Flandre and the dismounted Dragoons. She, and such women as are fittest, go through the ranks; speak with an earnest jocosity; clasp rough troopers to their patriot bosom, crush down spontoons and musketoons with soft arms: can a man, that were worthy of the name of man, attack famishing patriot women?
 

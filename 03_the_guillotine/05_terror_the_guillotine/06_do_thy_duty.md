@@ -1,4 +1,4 @@
-# Do thy Duty.
+# Do thy Duty
 
 Accordingly alongside of these bonfires of Church balustrades, and sounds of fusillading and noyading, there rise quite another sort of fires and sounds: Smithy-fires and Proof-volleys for the manufacture of arms.
 

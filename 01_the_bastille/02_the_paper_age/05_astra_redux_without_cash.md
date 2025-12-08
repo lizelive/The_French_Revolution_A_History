@@ -1,4 +1,4 @@
-# Astræa Redux without Cash.
+# Astræa Redux without Cash
 
 Observe, however, beyond the Atlantic, has not the new day verily dawned! Democracy, as we said, is born; storm-girt, is struggling for life and victory. A sympathetic France rejoices over the Rights of Man; in all saloons, it is said, What a spectacle! Now too behold our Deane, our Franklin, American Plenipotentiaries, here in position soliciting;[^35] the sons of the Saxon Puritans, with their Old-Saxon temper, Old-Hebrew culture, sleek Silas, sleek Benjamin, here on such errand, among the light children of Heathenism, Monarchy, Sentimentalism, and the Scarlet-woman. A spectacle indeed; over which saloons may cackle joyous; though Kaiser Joseph, questioned on it, gave this answer, most unexpected from a Philosophe: ‘Madame, the trade I live by is that of royalist (*Mon métier à moi c’est d’être royaliste*).’
 

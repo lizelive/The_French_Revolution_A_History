@@ -1,4 +1,4 @@
-# From Versailles.
+# From Versailles
 
 However, the Paris National Guard, wholly under arms, has cleared the Palace, and even occupies the nearer external spaces; extruding miscellaneous Patriotism, for most part, into the Grand Court, or even into the Forecourt.
 

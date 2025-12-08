@@ -1,4 +1,4 @@
-# The Notables.
+# The Notables
 
 Here, then is verily a sign and wonder; visible to the whole world; bodeful of much. The Œil-de-Bœuf dolorously grumbles; were we not well as we stood,—quenching conflagrations by oil? Constitutional Philosophedom starts with joyful surprise; stares eagerly what the result will be. The public creditor, the public debtor, the whole thinking and thoughtless public have their several surprises, joyful and sorrowful. Count Mirabeau, who has got his matrimonial and other Lawsuits huddled up, better or worse; and works now in the dimmest element at Berlin; compiling *Prussian Monarchies*, Pamphlets *On Cagliostro;* writing, with pay, but not with honourable recognition, innumerable Despatches for his Government,—scents or descries richer quarry from afar. He, like an eagle or vulture, or mixture of both, preens his wings for flight homewards.[^52]
 

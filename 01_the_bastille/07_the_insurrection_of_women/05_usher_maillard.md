@@ -1,4 +1,4 @@
-# Usher Maillard.
+# Usher Maillard
 
 In flames, truly,—were it not that Usher Maillard, swift of foot, shifty of head, has returned!
 

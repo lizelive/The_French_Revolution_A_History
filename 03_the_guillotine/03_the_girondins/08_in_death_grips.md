@@ -1,4 +1,4 @@
-# In Death-Grips.
+# In Death-Grips
 
 It proves what strength, were it only of inertia, there is in established Formulas, what weakness in nascent Realities, and illustrates several things, that this death-wrestle should still have lasted some six weeks or more. National business, discussion of the Constitutional Act, for our Constitution should decidedly be got ready, proceeds along with it. We even change our Locality; we shift, on the Tenth of May, from the old Salle de Manége, into our new Hall, in the Palace, once a King’s but now the Republic’s, of the Tuileries. Hope and ruth, flickering against despair and rage, still struggles in the minds of men.
 

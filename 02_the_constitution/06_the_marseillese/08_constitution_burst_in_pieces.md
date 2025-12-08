@@ -1,4 +1,4 @@
-# Constitution burst in Pieces.
+# Constitution burst in Pieces
 
 Thus is the Tenth of August won and lost. Patriotism reckons its slain by thousand on thousand, so deadly was the Swiss fire from these windows; but will finally reduce them to some Twelve hundred. No child’s play was it;—nor is it! Till two in the afternoon the massacring, the breaking and the burning has not ended; nor the loose Bedlam shut itself again.
 

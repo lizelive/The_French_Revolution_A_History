@@ -1,4 +1,4 @@
-# Executive that does not act.
+# Executive that does not act
 
 How could your paralytic National Executive be put “in action,” in any measure, by such a Twentieth of June as this? Quite contrariwise: a large sympathy for Majesty so insulted arises every where; expresses itself in Addresses, Petitions, “Petition of the Twenty Thousand inhabitants of Paris,” and such like, among all Constitutional persons; a decided rallying round the Throne.
 

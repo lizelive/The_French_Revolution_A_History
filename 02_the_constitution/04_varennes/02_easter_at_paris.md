@@ -1,4 +1,4 @@
-# Easter at Paris.
+# Easter at Paris
 
 For above a year, ever since March 1790, it would seem, there has hovered a project of Flight before the royal mind; and ever and anon has been condensing itself into something like a purpose; but this or the other difficulty always vaporised it again. It seems so full of risks, perhaps of civil war itself; above all, it cannot be done without effort. Somnolent laziness will not serve: to fly, if not in a leather *vache*, one must verily stir himself. Better to adopt that Constitution of theirs; execute it so as to shew all men that it is inexecutable? Better or not so good; surely it is *easier*. To all difficulties you need only say, There is a lion in the path, behold your Constitution will not act! For a somnolent person it requires no effort to counterfeit death,—as Dame de Staël and Friends of Liberty can see the King’s Government long doing, *faisant le mort*.
 

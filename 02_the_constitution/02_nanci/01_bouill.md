@@ -1,4 +1,4 @@
-# Bouillé.
+# Bouillé
 
 Dimly visible, at Metz on the North-Eastern frontier, a certain brave Bouillé, last refuge of Royalty in all straits and meditations of flight, has for many months hovered occasionally in our eye; some name or shadow of a brave Bouillé: let us now, for a little, look fixedly at him, till he become a substance and person for us. The man himself is worth a glance; his position and procedure there, in these days, will throw light on many things.
 

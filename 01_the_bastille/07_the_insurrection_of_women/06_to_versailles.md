@@ -1,4 +1,4 @@
-# To Versailles.
+# To Versailles
 
 For, indeed, about this same moment, Maillard has halted his draggled Menads on the last hill-top; and now Versailles, and the Château of Versailles, and far and wide the inheritance of Royalty opens to the wondering eye. From far on the right, over Marly and Saint-Germains-en-Laye; round towards Rambouillet, on the left: beautiful all; softly embosomed; as if in sadness, in the dim moist weather! And near before us is Versailles, New and Old; with that broad frondent *Avenue de Versailles* between,—stately-frondent, broad, three hundred feet as men reckon, with four Rows of Elms; and then the *Château de Versailles*, ending in royal Parks and Pleasances, gleaming lakelets, arbours, Labyrinths, the *Ménagerie*, and Great and Little Trianon. High-towered dwellings, leafy pleasant places; where the gods of this lower world abide: whence, nevertheless, black Care cannot be excluded; whither Menadic Hunger is even now advancing, armed with pike-thyrsi!
 

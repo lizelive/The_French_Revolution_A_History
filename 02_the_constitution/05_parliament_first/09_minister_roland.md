@@ -1,4 +1,4 @@
-# Minister Roland.
+# Minister Roland
 
 About the vernal equinox, however, one unexpected gleam of hope does burst forth on Patriotism: the appointment of a thoroughly Patriot Ministry. This also his Majesty, among his innumerable experiments of wedding fire to water, will try. *Quod bonum sit*. Madame d’Udon’s Breakfasts have jingled with a new significance; not even Genevese Dumont but had a word in it. Finally, on the 15th and onwards to the 23d day of March, 1792, when all is negociated,—this is the blessed issue; this Patriot Ministry that we see.
 

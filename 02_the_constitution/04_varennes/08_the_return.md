@@ -1,4 +1,4 @@
-# The Return.
+# The Return
 
 So then our grand Royalist Plot, of Flight to Metz, has *executed* itself. Long hovering in the background, as a dread royal *ultimatum*, it has rushed forward in its terrors: verily to some purpose. How many Royalist Plots and Projects, one after another, cunningly-devised, that were to explode like powder-mines and thunderclaps; not one solitary Plot of which has issued otherwise! Powder-mine of a *Séance Royale* on the Twenty-third of June 1789, which exploded as we then said, “through the touchhole;” which next, your wargod Broglie having reloaded it, brought a Bastille about your ears. Then came fervent Opera-Repast, with flourishing of sabres, and *O Richard, O my King;* which, aided by Hunger, produces Insurrection of Women, and Pallas Athene in the shape of Demoiselle Théroigne. Valour profits not; neither has fortune smiled on Fanfaronade. The Bouillé Armament ends as the Broglie one had done. Man after man spends himself in this cause, only to work it quicker ruin; it seems a cause doomed, forsaken of Earth and Heaven.
 

@@ -1,4 +1,4 @@
-# Contrat Social.
+# Contrat Social
 
 In such succession of singular prismatic tints, flush after flush suffusing our horizon, does the Era of Hope dawn on towards fulfilment. Questionable! As indeed, with an Era of Hope that rests on mere universal Benevolence, victorious Analysis, Vice cured of its deformity; and, in the long run, on Twenty-five dark savage Millions, looking up, in hunger and weariness, to that *Ecce-signum* of theirs “forty feet high,”—how could it but be questionable?
 

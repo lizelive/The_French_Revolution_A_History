@@ -1,4 +1,4 @@
-# Decadent.
+# Decadent
 
 How little did any one suppose that here was the end not of Robespierre only, but of the Revolution System itself! Least of all did the mutinying Committee-men suppose it; who had mutinied with no view whatever except to continue the National Regeneration with their own heads on their shoulders. And yet so it verily was. The insignificant stone they had struck out, so insignificant anywhere else, proved to be the Keystone: the whole arch-work and edifice of Sansculottism began to loosen, to crack, to yawn; and tumbled, piecemeal, with considerable rapidity, plunge after plunge; till the Abyss had swallowed it all, and in this upper world Sansculottism was no more.
 

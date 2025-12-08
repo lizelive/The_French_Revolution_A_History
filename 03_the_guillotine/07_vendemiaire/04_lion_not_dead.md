@@ -1,4 +1,4 @@
-# Lion not Dead.
+# Lion not Dead
 
 The Convention, borne on the tide of Fortune towards foreign Victory, and driven by the strong wind of Public Opinion towards Clemency and Luxury, is rushing fast; all skill of pilotage is needed, and more than all, in such a velocity.
 

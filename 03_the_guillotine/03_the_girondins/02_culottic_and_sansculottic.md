@@ -1,4 +1,4 @@
-# Culottic and Sansculottic.
+# Culottic and Sansculottic
 
 Gironde and Mountain are now in full quarrel; their mutual rage, says Toulongeon, is growing a “pale” rage. Curious, lamentable: all these men have the word Republic on their lips; in the heart of every one of them is a passionate wish for something which he calls Republic: yet see their death-quarrel! So, however, are men made. Creatures who live in confusion; who, once thrown together, can readily fall into that confusion of confusions which quarrel is, simply because their confusions differ from one another; still more because they seem to differ! Men’s words are a poor exponent of their thought; nay their thought itself is a poor exponent of the inward unnamed Mystery, wherefrom both thought and action have their birth. No man can explain himself, can get himself explained; men see not one another but distorted phantasms which they call one another; which they hate and go to battle with: for all battle is well said to be *misunderstanding*.
 

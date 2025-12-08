@@ -1,4 +1,4 @@
-# To Finish the Terror.
+# To Finish the Terror
 
 It is very remarkable, indeed, that since the *Être-Suprême* Feast, and the sublime continued harangues on it, which Billaud feared would become a bore to him, Robespierre has gone little to Committee; but held himself apart, as if in a kind of pet. Nay they have made a Report on that old Catherine Théot, and her Regenerative Man spoken of by the Prophets; not in the best spirit. This Théot mystery they affect to regard as a Plot; but have evidently introduced a vein of satire, of irreverent banter, not against the Spinster alone, but obliquely against her Regenerative Man! Barrère’s light pen was perhaps at the bottom of it: read through the solemn snuffling organs of old Vadier of the *Sûreté Générale*, the Théot Report had its effect; wrinkling the general Republican visage into an iron grin. Ought these things to be?
 

@@ -1,4 +1,4 @@
-# The Night of Spurs.
+# The Night of Spurs
 
 This comes of mysterious Escorts, and a new Berline with eleven horses: “he that has a secret should not only hide it, but hide that he has it to hide.” Your first Military Escort has exploded self-destructive; and all Military Escorts, and a suspicious Country will now be up, explosive; comparable *not* to victorious thunder. Comparable, say rather, to the first stirring of an Alpine Avalanche; which, once stir it, as here at Sainte-Menehould, will spread,—all round, and on and on, as far as Stenai; thundering with wild ruin, till Patriot Villagers, Peasantry, Military Escorts, new Berline and Royalty are down,—jumbling in the Abyss!
 

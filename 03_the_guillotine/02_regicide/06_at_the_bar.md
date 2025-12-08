@@ -1,4 +1,4 @@
-# At the Bar.
+# At the Bar
 
 Meanwhile, in a space of some five weeks, we have got to another emerging of the Trial, and a more practical one than ever.
 

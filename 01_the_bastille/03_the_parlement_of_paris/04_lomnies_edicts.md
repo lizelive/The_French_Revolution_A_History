@@ -1,4 +1,4 @@
-# Loménie’s Edicts.
+# Loménie’s Edicts
 
 Thus, then, have the Notables returned home; carrying to all quarters of France, such notions of deficit, decrepitude, distraction; and that States-General will cure it, or will not cure it but kill it. Each Notable, we may fancy, is as a funeral torch; disclosing hideous abysses, better left hid! The unquietest humour possesses all men; ferments, seeks issue, in pamphleteering, caricaturing, projecting, declaiming; vain jangling of thought, word and deed.
 

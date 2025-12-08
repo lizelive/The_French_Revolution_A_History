@@ -1,4 +1,4 @@
-# Stretching of Formulas.
+# Stretching of Formulas
 
 But how this Question of the Trial grew laboriously, through the weeks of gestation, now that it has been articulated or conceived, were superfluous to trace here. It emerged and submerged among the infinite of questions and embroilments. The Veto of Scoundrels writes plaintive Letters as to Anarchy; “concealed Royalists,” aided by Hunger, produce Riots about Grain. Alas, it is but a week ago, these Girondins made a new fierce onslaught on the September Massacres!
 

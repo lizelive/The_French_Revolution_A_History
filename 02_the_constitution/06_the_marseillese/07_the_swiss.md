@@ -1,4 +1,4 @@
-# The Swiss.
+# The Swiss
 
 Unhappy Friends, the tocsin does yield, has yielded! Lo ye, how with the first sun-rays its Ocean-tide, of pikes and fusils, flows glittering from the far East;—immeasurable; born of the Night! They march there, the grim host; Saint-Antoine on this side of the River; Saint-Marceau on that, the blackbrowed Marseillese in the van. With hum, and grim murmur, far-heard; like the Ocean-tide, as we say: drawn up, as if by Luna and Influences, from the great Deep of Waters, they roll gleaming on; no King, Canute or Louis, can bid them roll back. Wide-eddying side-currents, of onlookers, roll hither and thither, unarmed, not voiceless; they, the steel host, roll on. New-Commandant Santerre, indeed, has taken seat at the Townhall; rests there, in his half-way-house. Alsatian Westermann, with flashing sabre, does not rest; nor the Sections, nor the Marseillese, nor Demoiselle Théroigne; but roll continually on.
 

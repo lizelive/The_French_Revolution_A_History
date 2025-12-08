@@ -1,4 +1,4 @@
-# Realised Ideals.
+# Realised Ideals
 
 Such a changed France have we; and a changed Louis. Changed, truly; and further than thou yet seest!—To the eye of History many things, in that sick-room of Louis, are now visible, which to the Courtiers there present were invisible. For indeed it is well said, “in every object there is inexhaustible meaning; the eye sees in it what the eye brings means of seeing.” To Newton and to Newton’s Dog Diamond, what a different pair of Universes; while the painting on the optical retina of both was, most likely, the same! Let the Reader here, in this sick-room of Louis, endeavour to look with the mind too.
 

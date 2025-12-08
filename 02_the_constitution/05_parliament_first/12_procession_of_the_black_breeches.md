@@ -1,4 +1,4 @@
-# Procession of the Black Breeches.
+# Procession of the Black Breeches
 
 But is there a thinking man in France who, in these circumstances, can persuade himself that the Constitution will march? Brunswick is stirring; *he*, in few days now, will march. Shall France sit still, wrapped in dead cerements and grave-clothes, its right hand glued to its left, till the Brunswick Saint-Bartholomew arrive; till France be as Poland, and its Rights of Man become a Prussian Gibbet?
 

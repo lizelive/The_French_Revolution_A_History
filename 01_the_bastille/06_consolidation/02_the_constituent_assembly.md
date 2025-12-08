@@ -1,4 +1,4 @@
-# The Constituent Assembly.
+# The Constituent Assembly
 
 One thing an elected Assembly of Twelve Hundred is fit for: Destroying. Which indeed is but a more decided exercise of its natural talent for Doing Nothing. Do nothing, only keep agitating, debating; and things will destroy themselves.
 

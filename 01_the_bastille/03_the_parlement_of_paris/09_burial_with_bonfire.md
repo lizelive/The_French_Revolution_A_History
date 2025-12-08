@@ -1,4 +1,4 @@
-# Burial with Bonfire.
+# Burial with Bonfire
 
 Besenval, during these extraordinary operations, of Payment two-fifths in Paper, and change of Prime Minister, had been out on a tour through his District of Command; and indeed, for the last months, peacefully drinking the waters of Contrexeville. Returning now, in the end of August, towards Moulins, and “knowing nothing,” he arrives one evening at Langres; finds the whole Town in a state of uproar (*grande rumeur*). Doubtless some sedition; a thing too common in these days! He alights nevertheless; inquires of a “man tolerably dressed,” what the matter is?—‘How?’ answers the man, ‘you have not heard the news? The Archbishop is thrown out, and M. Necker is recalled; and all is going to go well!’[^102]
 

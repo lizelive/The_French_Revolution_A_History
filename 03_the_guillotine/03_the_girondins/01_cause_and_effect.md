@@ -1,4 +1,4 @@
-# Cause and Effect.
+# Cause and Effect
 
 This huge Insurrectionary Movement, which we liken to a breaking out of Tophet and the Abyss, has swept away Royalty, Aristocracy, and a King’s life. The question is, What will it next do; how will it henceforth shape itself? Settle down into a reign of Law and Liberty; according as the habits, persuasions and endeavours of the educated, monied, respectable class prescribe? That is to say: the volcanic lava-flood, bursting up in the manner described, will explode and flow according to Girondin Formula and pre-established rule of Philosophy? If so, for our Girondin friends it will be well.
 

@@ -1,4 +1,4 @@
-# Mumbo-Jumbo.
+# Mumbo-Jumbo
 
 But on the day they call *Décadi*, New-Sabbath, 20 *Prairial*, 8th June by old style, what thing is this going forward, in the Jardin National, whilom Tuileries Garden?
 

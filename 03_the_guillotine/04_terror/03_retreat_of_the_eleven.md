@@ -1,4 +1,4 @@
-# Retreat of the Eleven.
+# Retreat of the Eleven
 
 It is one of the notablest Retreats, this of the Eleven, that History presents: The handful of forlorn Legislators retreating there, continually, with shouldered firelock and well-filled cartridge-box, in the yellow autumn; long hundreds of miles between them and Bourdeaux; the country all getting hostile, suspicious of the truth; simmering and buzzing on all sides, more and more. Louvet has preserved the Itinerary of it; a piece worth all the rest he ever wrote.
 

@@ -1,4 +1,4 @@
-# September in Argonne.
+# September in Argonne
 
 Plain, at any rate, is one thing: that the *fear*, whatever of fear those Aristocrat enemies might need, has been brought about. The matter is getting serious then! Sansculottism too has become a Fact, and seems minded to assert itself as such? This huge mooncalf of Sansculottism, staggering about, as young calves do, is not mockable only, and soft like another calf; but terrible too, if you prick it; and, through its hideous nostrils, blows fire!—Aristocrats, with pale panic in their hearts, fly towards covert; and a light rises to them over several things; or rather a confused transition towards light, whereby for the moment darkness is only darker than ever. But, What will become of this France? Here is a question! France is dancing its desert-waltz, as Sahara does when the winds waken; in whirlblasts twenty-five millions in number; waltzing towards Townhalls, Aristocrat Prisons, and Election Committee-rooms; towards Brunswick and the Frontiers;—towards a New Chapter of Universal History; if indeed it be not the *Finis*, and winding-up of that!
 

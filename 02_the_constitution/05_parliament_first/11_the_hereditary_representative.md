@@ -1,4 +1,4 @@
-# The Hereditary Representative.
+# The Hereditary Representative
 
 And yet it is not by carmagnole-dances and singing of *ça-ira*, that the work can be done. Duke Brunswick is not dancing carmagnoles, but has his drill serjeants busy.
 

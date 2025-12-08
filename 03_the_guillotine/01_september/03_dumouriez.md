@@ -1,4 +1,4 @@
-# Dumouriez.
+# Dumouriez
 
 Such are the last days of August, 1792; days gloomy, disastrous, and of evil omen. What will become of this poor France? Dumouriez rode from the Camp of Maulde, eastward to Sedan, on Tuesday last, the 28th of the month; reviewed that so-called Army left forlorn there by Lafayette: the forlorn soldiers gloomed on him; were heard growling on him, ‘This is one of them, *ce b—e là*, that made War be declared.’[^522] Unpromising Army! Recruits flow in, filtering through Dépôt after Dépôt; but recruits merely: in want of all; happy if they have so much as arms. And Longwi has fallen basely; and Brunswick, and the Prussian King, with his sixty thousand, will beleaguer Verdun; and Clairfait and Austrians press deeper in, over the Northern marches: “a hundred and fifty thousand” as fear counts, “eighty thousand” as the returns shew, do hem us in; Cimmerian Europe behind them. There is Castries-and-Broglie chivalry; Royalist foot “in red facing and nankeen trousers;” breathing death and the gallows.
 

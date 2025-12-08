@@ -1,4 +1,4 @@
-# Rushing down.
+# Rushing down
 
 We are now, therefore, got to that black precipitous Abyss; whither all things have long been tending; where, having now arrived on the giddy verge, they hurl down, in confused ruin; headlong, pellmell, down, down;—till Sansculottism have consummated itself; and in this wondrous French Revolution, as in a Doomsday, a World have been rapidly, if not born again, yet destroyed and engulphed. Terror has long been terrible: but to the actors themselves it has now become manifest that their appointed course is one of Terror; and they say, Be it so. ‘*Que la Terreur soit a l’ordre du jour*.’
 

@@ -1,4 +1,4 @@
-# Finis.
+# Finis
 
 Homer’s Epos, it is remarked, is like a Bas-relief sculpture: it does not conclude, but merely ceases. Such, indeed, is the Epos of Universal History itself. Directorates, Consulates, Emperorships, Restorations, Citizen-Kingships succeed this Business in due series, in due genesis one out of the other. Nevertheless the First-parent of all these may be said to have gone to air in the way we see. A Baboeuf Insurrection, next year, will die in the birth; stifled by the Soldiery. A Senate, if tinged with Royalism, can be purged by the Soldiery; and an Eighteenth of Fructidor transacted by the mere shew of bayonets.[^784] Nay Soldiers’ bayonets can be used *à posteriori* on a Senate, and make it leap out of window,—still bloodless; and produce an Eighteenth of Brumaire.[^785] Such changes must happen: but they are managed by intriguings, caballings, and then by orderly word of command; almost like mere changes of Ministry. Not in general by sacred right of Insurrection, but by milder methods growing ever milder, shall the Events of French history be henceforth brought to pass.
 

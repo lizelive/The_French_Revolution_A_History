@@ -1,4 +1,4 @@
-# Louis the Unforgotten.
+# Louis the Unforgotten
 
 Poor Louis! With these it is a hollow phantasmagory, where like mimes they mope and mowl, and utter false sounds for hire; but with thee it is frightful earnest.
 

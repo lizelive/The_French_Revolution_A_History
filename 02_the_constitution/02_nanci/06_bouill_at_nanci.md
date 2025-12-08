@@ -1,4 +1,4 @@
-# Bouillé at Nanci.
+# Bouillé at Nanci
 
 Haste with help, thou brave Bouillé: if swift help come not, all is now verily “burning;” and may burn,—to what lengths and breadths! Much, in these hours, depends on Bouillé; as it shall now fare with him, the whole Future may be this way or be that. If, for example, he were to loiter dubitating, and not come: if he were to come, and fail: the whole Soldiery of France to blaze into mutiny, National Guards going some this way, some that; and Royalism to draw its rapier, and Sansculottism to snatch its pike; and the Spirit if Jacobinism, as yet young, girt with sun-rays, to grow instantaneously mature, girt with hell-fire,—as mortals, in one night of deadly crisis, have had their heads turned gray!
 

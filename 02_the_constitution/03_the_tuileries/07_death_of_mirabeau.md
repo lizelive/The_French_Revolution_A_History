@@ -1,4 +1,4 @@
-# Death of Mirabeau.
+# Death of Mirabeau
 
 But Mirabeau could not live another year, any more than he could live another thousand years. Men’s years are numbered, and the tale of Mirabeau’s was now complete. Important, or unimportant; to be mentioned in World-History for some centuries, or not to be mentioned there beyond a day or two,—it matters not to peremptory Fate. From amid the press of ruddy busy Life, the Pale Messenger beckons silently: wide-spreading interests, projects, salvation of French Monarchies, what thing soever man has on hand, he must suddenly quit it all, and go. Wert thou saving French Monarchies; wert thou blacking shoes on the Pont Neuf! The most important of men cannot stay; did the World’s History depend on an hour, that hour is not to be given. Whereby, indeed, it comes that these same *would-have-beens* are mostly a vanity; and the World’s History could never in the least be what it would, or might, or should, by any manner of potentiality, but simply and altogether what it *is*.
 

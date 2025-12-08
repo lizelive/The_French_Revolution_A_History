@@ -1,4 +1,4 @@
-# Mirabeau.
+# Mirabeau
 
 The spirit of France waxes ever more acrid, fever-sick: towards the final outburst of dissolution and delirium. Suspicion rules all minds: contending parties cannot now commingle; stand separated sheer asunder, eying one another, in most aguish mood, of cold terror or hot rage. Counter-Revolution, Days of Poniards, Castries Duels; Flight of Mesdames, of Monsieur and Royalty! Journalism shrills ever louder its cry of alarm. The sleepless Dionysius’s Ear of the Forty-eight Sections, how feverishly quick has it grown; convulsing with strange pangs the whole sick Body, as in such sleeplessness and sickness, the ear will do!
 
