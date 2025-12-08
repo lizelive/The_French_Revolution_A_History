@@ -199,20 +199,18 @@ def parse_with_beautifulsoup(html_content: str) -> List[Chapter]:
     footnote_map = {}
     
     # First pass: collect footnotes
-    for footnote_div in soup.find_all(['div', 'p'], class_=re.compile(r'footnote', re.I)):
-        footnote_text = footnote_div.get_text(strip=True)
-        # Try to extract footnote number and text
-        match = re.match(r'\[(\d+)\]\s*(.*)', footnote_text)
+    # Footnotes are in <p class="footnote"> and have format:
+    # "1 (return)<br>Actual footnote text"
+    for footnote_p in soup.find_all('p', class_='footnote'):
+        footnote_text = footnote_p.get_text(separator=' ', strip=True)
+        # Extract number and text - format is "NUMBER (return) TEXT"
+        match = re.match(r'^(\d+)\s*\([^)]*\)\s*(.*)', footnote_text)
         if match:
-            footnote_map[match.group(1)] = match.group(2)
+            num = match.group(1)
+            text = match.group(2).strip()
+            if text:
+                footnote_map[num] = text
     
-    # Also look for footnotes at the end or in specific sections
-    for elem in soup.find_all('p'):
-        text = elem.get_text(strip=True)
-        if re.match(r'^\[\d+\]', text):
-            match = re.match(r'^\[(\d+)\]\s*(.*)', text)
-            if match:
-                footnote_map[match.group(1)] = match.group(2)
     
     # Second pass: parse chapters
     for heading in all_headings:
@@ -224,16 +222,16 @@ def parse_with_beautifulsoup(html_content: str) -> List[Chapter]:
             current_volume = roman_to_int(vol_match.group(1))
             continue
         
-        # Check for BOOK markers (format: "BOOK 1.2. Title" or "BOOK 1.2—Title")
-        book_match = re.match(r'BOOK\s+(\d+)\.(\d+)[\.\s—-]*(.+)?', heading_text, re.I)
+        # Check for BOOK markers (format: "BOOK 1.I.TITLE" where parts may not have spaces)
+        book_match = re.match(r'BOOK\s+(\d+)\.([IVX]+)\.?\s*(.+)?', heading_text, re.I)
         if book_match:
             current_volume = int(book_match.group(1))
-            current_book = int(book_match.group(2))
+            current_book = roman_to_int(book_match.group(2))
             continue
         
-        # Check for CHAPTER markers (format: "CHAPTER 1.1.IV. Title")
+        # Check for CHAPTER markers (format: "Chapter 1.1.I.Title" where title may have no space)
         chapter_match = re.match(
-            r'CHAPTER\s+(\d+)\.(\d+)\.([IVX]+)[\.\s—-]*(.+)',
+            r'Chapter\s+(\d+)\.(\d+)\.([IVX]+)\.?\s*(.+)',
             heading_text,
             re.I
         )
