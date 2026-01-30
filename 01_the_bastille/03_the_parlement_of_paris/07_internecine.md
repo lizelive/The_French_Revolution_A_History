@@ -1,40 +1,68 @@
-# Internecine
+# Internecine: Everyone Fights Everyone
 
-What a France, through these winter months of the year 1787! The very Œil-de-Bœuf is doleful, uncertain; with a general feeling among the Suppressed, that it were better to be in Turkey. The Wolf-hounds are suppressed, the Bear-hounds, Duke de Coigny, Duke de Polignac: in the Trianon little-heaven, her Majesty, one evening, takes Besenval’s arm; asks his candid opinion. The intrepid Besenval,—having, as he hopes, nothing of the sycophant in *him*,—plainly signifies that, with a Parlement in rebellion, and an Œil-de-Bœuf in suppression, the King’s Crown is in danger;—whereupon, singular to say, her Majesty, as if hurt, changed the subject, *et ne me parla plus de rien!*[^78]
+By early 1788, the political situation has devolved into all-against-all warfare.
 
-To whom, indeed, can this poor Queen speak? In need of wise counsel, if ever mortal was; yet beset here only by the hubbub of chaos! Her dwelling-place is so bright to the eye, and confusion and black care darkens it all. Sorrows of the Sovereign, sorrows of the woman, think-coming sorrows environ her more and more. Lamotte, the Necklace-Countess, has in these late months escaped, perhaps been suffered to escape, from the Salpêtrière. Vain was the hope that Paris might thereby forget her; and this ever-widening-lie, and heap of lies, subside. The Lamotte, with a V (for *Voleuse*, Thief) branded on both shoulders, has got to England; and will therefrom emit lie on lie; defiling the highest queenly name: mere distracted lies;[^79] which, in its present humour, France will greedily believe.
+## The Players
 
-For the rest, it is too clear our Successive Loan is not filling. As indeed, in such circumstances, a Loan registered by expunging of Protests was not the likeliest to fill. Denunciation of *Lettres-de-Cachet*, of Despotism generally, abates not: the Twelve Parlements are busy; the Twelve hundred Placarders, Balladsingers, Pamphleteers. Paris is what, in figurative speech, they call “flooded with pamphlets (*regorge de brochures*);” flooded and eddying again. Hot deluge,—from so many Patriot ready-writers, all at the *fervid* or boiling point; each ready-writer, now in the hour of eruption, going like an Iceland Geyser! Against which what can a judicious friend Morellet do; a Rivarol, an unruly Linguet (well paid for it),—spouting *cold!*
+**The Court (Versailles faction)**: They want to maintain the status quo. Keep the King's power intact. Find some way to raise taxes without giving up any royal authority. Led by hardliners who see any concession as weakness.
 
-Now also, at length, does come discussion of the Protestant Edict: but only for new embroilment; in pamphlet and counter-pamphlet, increasing the madness of men. Not even Orthodoxy, bedrid as she seemed, but will have a hand in this confusion. She, once again in the shape of Abbé Lenfant, “whom Prelates drive to visit and congratulate,”—raises audible sound from her pulpit-drum.[^80] Or mark how D’Espréménil, who has his own confused way in all things, produces at the right moment in Parlementary harangue, a pocket Crucifix, with the apostrophe: ‘Will ye crucify him afresh?’ *Him*, O D’Espréménil, without scruple;—considering what poor stuff, of ivory and filigree, *he* is made of!
+**The Parlement**: They want to block new taxes AND establish themselves as the constitutional check on royal power. They keep demanding the States-General, but what they really want is to become the States-General themselves—the voice of the nation, without having to consult the actual nation.
 
-To all which add only that poor Brienne has fallen sick; so hard was the tear and wear of his sinful youth, so violent, incessant is this agitation of his foolish old age. Baited, bayed at through so many throats, his Grace, growing consumptive, inflammatory (with *humeur de dartre*), lies reduced to milk diet; in exasperation, almost in desperation; with “repose,” precisely the impossible recipe, prescribed as the indispensable.[^81]
+**The Aristocratic Opposition**: Many nobles support the Parlement... when it's convenient. They hate the idea of paying taxes. Some of them genuinely believe in constitutional limits on the King. Most of them just want to protect their privileges.
 
-On the whole, what can a poor Government do, but once more recoil ineffectual? The King’s Treasury is running towards the lees; and Paris “eddies with a flood of pamphlets.” At all rates, let the *latter* subside a little! D’Orléans gets back to Raincy, which is nearer Paris and the fair frail Buffon; finally to Paris itself: neither are Fréteau and Sabatier banished forever. The Protestant Edict is registered; to the joy of Boissy d’Anglas and good Malesherbes: Successive Loan, all protests expunged or else withdrawn, remains open,—the rather as few or none come to fill it. States-General, for which the Parlement has clamoured, and now the whole Nation clamours, will follow “in five years,”—if indeed not sooner. O Parlement of Paris, what a clamour was that! ‘Messieurs,’ said old d’Ormesson, ‘you will get States-General, and you will repent it.’ Like the Horse in the Fable, who, to be avenged of his enemy, applied to the Man. The Man mounted; did swift execution on the enemy; but, unhappily, would not dismount! Instead of five years, let three years pass, and this clamorous Parlement shall have both seen its enemy hurled prostrate, and been itself ridden to foundering (say rather, jugulated for hide and shoes), and lie dead in the ditch.
+**The People**: Increasingly noisy, increasingly organized, increasingly fed up with EVERYONE. They want bread, justice, and maybe—maybe—a say in how they're governed. They're cheering the Parlement for now, but that could change.
 
-Under such omens, however, we have reached the spring of 1788. By no path can the King’s Government find passage for itself, but is everywhere shamefully flung back. Beleaguered by Twelve rebellious Parlements, which are grown to be the organs of an angry Nation, it can advance nowhither; can accomplish nothing, obtain nothing, not so much as money to subsist on; but must sit there, seemingly, to be eaten up of Deficit.
+**The Reformers**: A scattered group who actually want real change—not just shuffling power from the King to the nobles, but genuine reform. They're reading American pamphlets, debating Rousseau, dreaming of something new.
 
-The measure of the Iniquity, then, of the Falsehood which has been gathering through long centuries, is nearly full? At least, that of the misery is! For the hovels of the Twenty-five Millions, the misery, permeating upwards and forwards, as its law is, has got so far,—to the very Œil-de-Bœuf of Versailles. Man’s hand, in this blind pain, is set against man: not only the low against the higher, but the higher against each other; Provincial Noblesse is bitter against Court Noblesse; Robe against Sword; Rochet against Pen. But against the King’s Government who is not bitter? Not even Besenval, in these days. To it all men and bodies of men are become as enemies; it is the centre whereon infinite contentions unite and clash. What new universal vertiginous movement is this; of Institution, social Arrangements, individual Minds, which once worked cooperative; now rolling and grinding in distracted collision? Inevitable: it is the breaking-up of a World-Solecism, worn out at last, down even to bankruptcy of money! And so this poor Versailles Court, as the chief or central Solecism, finds all the other Solecisms arrayed against it. Most natural! For your human Solecism, be it Person or Combination of Persons, is ever, by law of Nature, uneasy; if verging towards bankruptcy, it is even miserable:—and when would the meanest Solecism consent to blame or amend *itself*, while there remained another to amend?
+## The Spring of 1788
 
-These threatening signs do not terrify Loménie, much less teach him. Loménie, though of light nature, is not without courage, of a sort. Nay, have we not read of lightest creatures, trained Canary-birds, that could fly cheerfully with lighted matches, and fire cannon; fire whole powder-magazines? To sit and die of deficit is no part of Loménie’s plan. The evil is considerable; but can he not remove it, can he not attack it? At lowest, he can attack the *symptom* of it: these rebellious Parlements he can attack, and perhaps remove. Much is dim to Loménie, but two things are clear: that such Parlementary duel with Royalty is growing perilous, nay internecine; above all, that money must be had. Take thought, brave Loménie; thou Garde-des-Sceaux Lamoignon, who hast ideas! So often defeated, balked cruelly when the golden fruit seemed within clutch, rally for one other struggle. To tame the Parlement, to fill the King’s coffers: these are now life-and-death questions.
+The fighting gets dirty.
 
-Parlements have been tamed, more than once. Set to perch “on the peaks of rocks in accessible except by litters,” a Parlement grows reasonable. O Maupeou, thou bold man, had we left thy work where it was!—But apart from exile, or other violent methods, is there not one method, whereby all things are tamed, even lions? The method of hunger! What if the Parlement’s supplies were cut off; namely its Lawsuits!
+Brienne, desperate to break the Parlement's resistance, announces a comprehensive judicial reform: he's going to strip the Parlements of much of their power and create a new "Plenary Court" that will register edicts instead.
 
-Minor Courts, for the trying of innumerable minor causes, might be instituted: these we could call *Grand Bailliages*. Whereon the Parlement, shortened of its prey, would look with yellow despair; but the Public, fond of cheap justice, with favour and hope. Then for Finance, for registering of Edicts, why not, from our own Œil-de-Bœuf Dignitaries, our Princes, Dukes, Marshals, make a thing we could call *Plenary Court*; and there, so to speak, do our registering ourselves? St. Louis had his Plenary Court, of Great Barons;[^82] most useful to him: our Great Barons are still here (at least the Name of them is still here); our necessity is greater than his.
+This is basically a coup against the judicial system.
 
-Such is the Loménie-Lamoignon device; welcome to the King’s Council, as a light-beam in great darkness. The device seems feasible, it is eminently needful: be it once well executed, great deliverance is wrought. Silent, then, and steady; now or never!—the World shall see one other Historical Scene; and so singular a man as Loménie de Brienne still the Stage-manager there.
+The Parlement of Paris responds by publishing a manifesto declaring that France has a "constitution" (which it technically didn't, in any written sense) and that this constitution protects certain fundamental rights—including the right of the nation, through the States-General, to consent to taxation.
 
-Behold, accordingly, a Home-Secretary Bréteuil “beautifying Paris,” in the peaceablest manner, in this hopeful spring weather of 1788; the old hovels and hutches disappearing from our Bridges: as if for the State too there were halcyon weather, and nothing to do but beautify. Parlement seems to sit acknowledged victor. Brienne says nothing of Finance; or even says, and prints, that it is all well. How is this; such halcyon quiet; though the Successive Loan did not fill? In a victorious Parlement, Counsellor Goeslard de Monsabert even denounces that “levying of the Second Twentieth on strict valuation;” and gets decree that the valuation shall not be strict,—not on the privileged classes. Nevertheless Brienne endures it, launches no Lettre-de-Cachet against it. How is this?
+It's the most radical statement the Parlement has ever made. And it's designed to appeal over the King's head, directly to the public.
 
-Smiling is such vernal weather; but treacherous, sudden! For one thing, we hear it whispered, “the Intendants of Provinces have all got order to be at their posts on a certain day.” Still more singular, what incessant Printing is this that goes on at the King’s Château, under lock and key? Sentries occupy all gates and windows; the Printers come not out; they sleep in their workrooms; their very food is handed in to them![^83] A victorious Parlement smells new danger. D’Espréménil has ordered horses to Versailles; prowls round that guarded Printing-Office; prying, snuffing, if so be the sagacity and ingenuity of man may penetrate it.
+## The Arrest of the Judges
 
-To a shower of gold most things are penetrable. D’Espréménil descends on the lap of a Printer’s Danae, in the shape of “five hundred louis d’or:” the Danae’s Husband smuggles a ball of clay to her; which she delivers to the golden Counsellor of Parlement. Kneaded within it, their stick printed proof-sheets;—by Heaven! the royal Edict of that same self-registering *Plenary Court;* of those *Grand Bailliages* that shall cut short our Lawsuits! It is to be promulgated over all France on one and the same day.
+On May 3, 1788, royal troops surround the Parlement building.
 
-This, then, is what the Intendants were bid wait for at their posts: this is what the Court sat hatching, as its accursed cockatrice-egg; and would not stir, though provoked, till the brood were out! Hie with it, D’Espréménil, home to Paris; convoke instantaneous Sessions; let the Parlement, and the Earth, and the Heavens know it.
+Two of the most outspoken judges—D'Éprémesnil and Goislard de Montsabert—are arrested and hauled off to prison islands. The message is clear: resist, and you'll be crushed.
 
-[^78]: Besenval, iii. 264.
-[^79]: Mémoires justificatifs de la Comtesse de Lamotte (London, 1788). Vie
-[^80]: Lacretelle, iii. 343. Montgaillard, &c.
-[^81]: Besenval, iii. 317.
-[^82]: Montgaillard, i. 405.
-[^83]: Weber, i. 276.
+The other judges are ordered to disperse.
+
+## The Nationwide Revolt
+
+Instead of intimidating the opposition, the crackdown ignites it.
+
+In cities across France, people take to the streets. The most dramatic scene is in Grenoble, where crowds climb to the rooftops and shower soldiers with tiles—the famous "Day of Tiles" (Journée des Tuiles).
+
+Provincial Parlements declare solidarity with Paris. Local nobles organize protests. Even some clergy speak out.
+
+France hasn't seen anything like this since the religious wars of the 16th century. The whole country seems to be rising against the government.
+
+## What Everyone Wants
+
+Here's the strange thing: almost everyone is demanding the same thing now—**States-General**.
+
+The Parlement wants it (to limit royal power).
+The nobles want it (to protect their privileges).
+The reformers want it (to achieve real change).
+The ordinary people want it (hoping it might help them somehow).
+
+The only people who DON'T want it are the King and his inner circle. And they're rapidly running out of arguments.
+
+## The Dilemma
+
+If Louis XVI calls the States-General, he admits that he can't govern alone. That his authority needs the nation's consent. That absolute monarchy is over.
+
+If he doesn't call it, the protests will continue, the treasury will collapse, and who knows what happens then?
+
+It's a trap. And Louis, with his hesitant nature and limited political skills, is exactly the wrong person to be caught in it.
+
+By summer 1788, the question isn't WHETHER there will be a States-General.
+
+The question is whether it will save the monarchy—or destroy it.

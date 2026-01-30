@@ -1,33 +1,67 @@
-# Loménie’s Plots
+# Loménie's Plots: The Scheme That Made Everything Worse
 
-Was ever unfortunate Chief Minister so bested as Loménie-Brienne? The reins of the State fairly in his hand these six months; and not the smallest motive-power (of Finance) to stir from the spot with, this way or that! He flourishes his whip, but advances not. Instead of ready-money, there is nothing but rebellious debating and recalcitrating.
+The Parlement is in exile. The treasury is hemorrhaging. And Brienne is getting desperate.
 
-Far is the public mind from having calmed; it goes chafing and fuming ever worse: and in the royal coffers, with such yearly Deficit running on, there is hardly the colour of coin. Ominous prognostics! Malesherbes, seeing an exhausted, exasperated France grow hotter and hotter, talks of “conflagration:” Mirabeau, without talk, has, as we perceive, descended on Paris again, close on the rear of the Parlement,[^73]—not to quit his native soil any more.
+## The Sneaky Plan
 
-Over the Frontiers, behold Holland invaded by Prussia;[^74] the French party oppressed, England and the Stadtholder triumphing: to the sorrow of War-Secretary Montmorin and all men. But without money, sinews of war, as of work, and of existence itself, what can a Chief Minister do? Taxes profit little: this of the Second Twentieth falls not due till next year; and will then, with its “strict valuation,” produce more controversy than cash. Taxes on the Privileged Classes cannot be got registered; are intolerable to our supporters themselves: taxes on the Unprivileged yield nothing,—as from a thing drained dry more cannot be drawn. Hope is nowhere, if not in the old refuge of Loans.
+Here's Brienne's idea: make a deal with the Parlement. Offer to withdraw the most hated tax edicts. In exchange, the Parlement registers a big loan—enough to keep the government running for a while longer.
 
-To Loménie, aided by the long head of Lamoignon, deeply pondering this sea of troubles, the thought suggested itself: Why not have a Successive Loan (*Emprunt Successif*), or Loan that went on lending, year after year, as much as needful; say, till 1792? The trouble of registering such Loan were the same: we had then breathing time; money to work with, at least to subsist on. Edict of a Successive Loan must be proposed. To conciliate the Philosophes, let a liberal Edict walk in front of it, for emancipation of Protestants; let a liberal Promise guard the rear of it, that when our Loan ends, in that final 1792, the States-General shall be convoked.
+But here's the trick: when the loan comes for registration, Brienne will sneak in some OTHER reforms the Parlement won't like. And he'll do it in a way that catches them off guard.
 
-Such liberal Edict of Protestant Emancipation, the time having come for it, shall cost a Loménie as little as the “Death-penalties to be put in execution” did. As for the liberal Promise, of States-General, it can be fulfilled or not: the fulfilment is five good years off; in five years much intervenes. But the registering? Ah, truly, there is the difficulty!—However, we have that promise of the Elders, given secretly at Troyes. Judicious gratuities, cajoleries, underground intrigues, with old Foulon, named “*Ame damnée*, Familiar-demon, of the Parlement,” may perhaps do the rest. At worst and lowest, the Royal Authority has resources,—which ought it not to put forth? If it cannot realise money, the Royal Authority is as good as dead; dead of that surest and miserablest death, inanition. Risk and win; without risk all is already lost! For the rest, as in enterprises of pith, a touch of stratagem often proves furthersome, his Majesty announces *a Royal Hunt*, for the 19th of November next; and all whom it concerns are joyfully getting their gear ready.
+Specifically: a modified *lit de justice*, where the King appears but (theoretically) lets the Parlement debate. In reality, Brienne will control the outcome.
 
-Royal Hunt indeed; but of two-legged unfeathered game! At eleven in the morning of that Royal-Hunt day, 19th of November 1787, unexpected blare of trumpetting, tumult of charioteering and cavalcading disturbs the Seat of Justice: his Majesty is come, with Garde-des-Sceaux Lamoignon, and Peers and retinue, to hold Royal Session and have Edicts registered. What a change, since Louis XIV. entered here, in boots; and, whip in hand, ordered his registering to be done,—with an Olympian look which none durst gainsay; and did, without stratagem, in such unceremonious fashion, hunt as well as register![^75] For Louis XVI., on this day, the Registering will be enough; if indeed he and the day suffice for it.
+## The November Session
 
-Meanwhile, with fit ceremonial words, the purpose of the royal breast is signified:—Two Edicts, for Protestant Emancipation, for Successive Loan: of both which Edicts our trusty Garde-des-Sceaux Lamoignon will explain the purport; on both which a trusty Parlement is requested to deliver its opinion, each member having free privilege of speech. And so, Lamoignon too having perorated not amiss, and wound up with that Promise of States-General,—the Sphere-music of Parlementary eloquence begins. Explosive, responsive, sphere answering sphere, it waxes louder and louder. The Peers sit attentive; of diverse sentiment: unfriendly to States-General; unfriendly to Despotism, which cannot reward merit, and is suppressing places. But what agitates his Highness d’Orléans? The rubicund moon-head goes wagging; darker beams the copper visage, like unscoured copper; in the glazed eye is disquietude; he rolls uneasy in his seat, as if he meant something. Amid unutterable satiety, has sudden new appetite, for new forbidden fruit, been vouchsafed him? Disgust and edacity; laziness that cannot rest; futile ambition, revenge, non-admiralship:—O, within that carbuncled skin what a confusion of confusions sits bottled!
+November 19, 1787. The Parlement has returned from exile, thinking they've won a victory. The King arrives for what's supposed to be a "free registration" of the loan.
 
-“Eight Couriers,” in course of the day, gallop from Versailles, where Loménie waits palpitating; and gallop back again, not with the best news. In the outer Courts of the Palais, huge buzz of expectation reigns; it is whispered the Chief Minister has lost six votes overnight. And from within, resounds nothing but forensic eloquence, pathetic and even indignant; heartrending appeals to the royal clemency, that his Majesty would please to summon States-General forthwith, and be the Saviour of France:—wherein dusky-glowing D’Espréménil, but still more Sabatier de Cabre, and Fréteau, since named *Commère* Fréteau (Goody Fréteau), are among the loudest. For six mortal hours it lasts, in this manner; the infinite hubbub unslackened.
+The debate begins. Hours pass. The Parlement actually does debate—some in favor of the loan, some against. The atmosphere is tense.
 
-And so now, when brown dusk is falling through the windows, and no end visible, his Majesty, on hint of Garde-des-Sceaux, Lamoignon, opens his royal lips once more to say, in brief That he must have his Loan-Edict registered.—Momentary deep pause!—See! Monseigneur d’Orléans rises; with moon-visage turned towards the royal platform, he asks, with a delicate graciosity of manner covering unutterable things: ‘Whether it is a Bed of Justice, then; or a Royal Session?’ Fire flashes on him from the throne and neighbourhood: surly answer that ‘it is a Session.’ In that case, Monseigneur will crave leave to remark that Edicts cannot be registered by *order* in a Session; and indeed to enter, against such registry, his individual humble Protest. ‘*Vous êtes bien le maître* (You will do your pleasure)’, answers the King; and thereupon, in high state, marches out, escorted by his Court-retinue; D’Orléans himself, as in duty bound, escorting him, but only to the gate. Which duty done, D’Orléans returns in from the gate; redacts his Protest, in the face of an applauding Parlement, an applauding France; and so—has *cut* his Court-moorings, shall we say? And will now sail and drift, fast enough, towards Chaos?
+Then King Louis, who has been sitting there looking bored, suddenly stands up and announces: "I ORDER the loan to be registered."
 
-Thou foolish D’Orléans; Equality that art to be! Is Royalty grown a mere wooden Scarecrow; whereon thou, pert scald-headed crow, mayest alight at pleasure, and peck? Not yet wholly.
+Wait, what?
 
-Next day, a Lettre-de-Cachet sends D’Orléans to bethink himself in his Château of Villers-Cotterets, where, alas, is no Paris with its joyous necessaries of life; no fascinating indispensable Madame de Buffon,—light wife of a great Naturalist much too old for her. Monseigneur, it is said, does nothing but walk distractedly, at Villers-Cotterets; cursing his stars. Versailles itself shall hear penitent wail from him, so hard is his doom. By a second, simultaneous Lettre-de-Cachet, Goody Fréteau is hurled into the Stronghold of Ham, amid the Norman marshes; by a third, Sabatier de Cabre into Mont St. Michel, amid the Norman quicksands. As for the Parlement, it must, on summons, travel out to Versailles, with its Register-Book under its arm, to have the Protest *biffé* (expunged); not without admonition, and even rebuke. A stroke of authority which, one might have hoped, would quiet matters.
+This wasn't supposed to be a *lit de justice*! This was supposed to be a free debate! The King just ORDERING registration made a mockery of the whole proceeding!
 
-Unhappily, no; it is a mere taste of the whip to rearing coursers, which makes them rear worse! When a team of Twenty-five Millions begins rearing, what is Loménie’s whip? The Parlement will nowise acquiesce meekly; and set to register the Protestant Edict, and do its other work, in salutary fear of these three Lettres-de-Cachet. Far from that, it begins questioning Lettres-de-Cachet generally, their legality, endurability; emits dolorous objurgation, petition on petition to have its three Martyrs delivered; cannot, till that be complied with, so much as think of examining the Protestant Edict, but puts it off always “till this day week.”[^76]
+The Duke of Orléans (yes, him again) stands up and protests: "Sire, this is illegal!"
 
-In which objurgatory strain Paris and France joins it, or rather has preceded it; making fearful chorus. And now also the other Parlements, at length opening their mouths, begin to join; some of them, as at Grenoble and at Rennes, with portentous emphasis,—threatening, by way of reprisal, to interdict the very Tax-gatherer.[^77] ‘In all former contests,’ as Malesherbes remarks, ‘it was the Parlement that excited the Public; but here it is the Public that excites the Parlement.’
+Louis XVI, startled, replies: "It is legal... because I will it."
 
-[^73]: Fils Adoptif, Mirabeau , iv. l. 5.
-[^74]: October, 1787. Montgaillard, i. 374. Besenval, iii. 283.
-[^75]: Dulaure, vi. 306.
-[^76]: Besenval, iii. 309.
-[^77]: Weber, i. 266.
+*C'est légal parce que je le veux.*
+
+## The Bomb Goes Off
+
+"I will it." 
+
+Those three words would echo through French history.
+
+It was the most naked statement of absolutism anyone had heard in a long time. Not "because the law says so." Not "because tradition requires it." Just: "because I want to."
+
+The Duke of Orléans was immediately exiled to his estates. Other protesting magistrates were arrested and imprisoned.
+
+But the damage was done. The King had revealed the ugly reality underneath all the constitutional niceties: at the end of the day, it was raw power. There were no real limits. The King could do whatever he wanted and call it legal.
+
+Or could he?
+
+## The Tide Turns
+
+The public reaction was explosive.
+
+If the King could just WILL things to be legal, what rights did anyone have? What was the point of law at all? The Parlement—which, again, was full of privileged nobles protecting their privileges—suddenly became the symbol of constitutional government versus despotism.
+
+Letters of support flooded in from all over France. Provincial Parlements protested. Pamphlets multiplied. Even moderate observers who'd previously supported the King started having doubts.
+
+And the money situation? Still desperate. The loan was technically registered, but nobody wanted to lend to a government that looked this unstable.
+
+## Brienne's Crumbling Position
+
+By early 1788, Brienne was running out of rope.
+
+The loans weren't filling up. The government was having trouble paying its basic obligations. There were rumors of actual bankruptcy—the government literally unable to pay its debts.
+
+His clever schemes had all backfired. The Notables had been useless. The Parlement was hostile. Public opinion was against him. The King was losing confidence.
+
+And waiting in the wings, sharpening their arguments and building their networks, were people who saw in all this chaos an opportunity:
+
+The call for a States-General was getting louder every day.
+
+Maybe it was time to let the nation speak.

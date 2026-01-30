@@ -1,17 +1,65 @@
-# Controller Calonne
+# Controller Calonne: The Con Artist Who Almost Saved France
 
-Under such circumstances of *tristesse*, obstruction and sick langour, when to an exasperated Court it seems as if fiscal genius had departed from among men, what apparition could be welcomer than that of M. de Calonne? Calonne, a man of indisputable genius; even fiscal genius, more or less; of experience both in managing Finance and Parlements, for he has been Intendant at Metz, at Lille; King’s Procureur at Douai. A man of weight, connected with the moneyed classes; of unstained name,—if it were not some peccadillo (of showing a Client’s Letter) in that old D’Aiguillon-Lachalotais business, as good as forgotten now. He has kinsmen of heavy purse, felt on the Stock Exchange. Our Foulons, Berthiers intrigue for him:—old Foulon, who has now nothing to do but intrigue; who is known and even seen to be what they call a scoundrel; but of unmeasured wealth; who, from Commissariat-clerk which he once was, may hope, some think, if the game go right, to be Minister himself one day.
+November 1783. The court is depressed, the treasury is empty, and everyone's given up hope of finding anyone who can fix things.
 
-Such propping and backing has M. de Calonne; and then intrinsically such qualities! Hope radiates from his face; persuasion hangs on his tongue. For all straits he has present remedy, and will make the world roll on wheels before him. On the 3d of November 1783, the Œil-de-Bœuf rejoices in its new Controller-General. Calonne also shall have trial; Calonne also, in his way, as Turgot and Necker had done in theirs, shall forward the consummation; suffuse, with one other flush of brilliancy, our now too leaden-coloured Era of Hope, and wind it up—into fulfilment.
+Enter **Charles Alexandre de Calonne**, like a charming magician pulling rabbits from hats.
 
-Great, in any case, is the felicity of the Œil-de-Bœuf. Stinginess has fled from these royal abodes: suppression ceases; your Besenval may go peaceably to sleep, sure that he shall awake unplundered. Smiling Plenty, as if conjured by some enchanter, has returned; scatters contentment from her new-flowing horn. And mark what suavity of manners! A bland smile distinguishes our Controller: to all men he listens with an air of interest, nay of anticipation; makes their own wish clear to themselves, and grants it; or at least, grants conditional promise of it. ‘I fear this is a matter of difficulty,’ said her Majesty.—‘Madame,’ answered the Controller, ‘if it is but difficult, it is done, if it is impossible, it shall be done (*se fera*).’ A man of such “facility” withal. To observe him in the pleasure-vortex of society, which none partakes of with more gusto, you might ask, When does he work? And yet his work, as we see, is never behindhand; above all, the fruit of his work: ready-money. Truly a man of incredible facility; facile action, facile elocution, facile thought: how, in mild suasion, philosophic depth sparkles up from him, as mere wit and lambent sprightliness; and in her Majesty’s Soirees, with the weight of a world lying on him, he is the delight of men and women! By what magic does he accomplish miracles? By the only true magic, that of genius. Men name him “*the* Minister;” as indeed, when was there another such? Crooked things are become straight by him, rough places plain; and over the Œil-de-Bœuf there rests an unspeakable sunshine.
+## The Golden Boy
 
-Nay, in seriousness, let no man say that Calonne had not genius: genius for Persuading; before all things, for Borrowing. With the skilfulest judicious appliances of underhand money, he keeps the Stock-Exchanges flourishing; so that Loan after Loan is filled up as soon as opened. “Calculators likely to know”[^51] have calculated that he spent, in extraordinaries, “at the rate of one million daily;” which indeed is some fifty thousand pounds sterling: but did he not procure something with it; namely peace and prosperity, for the time being? Philosophedom grumbles and croaks; buys, as we said, 80,000 copies of Necker’s new Book: but Nonpareil Calonne, in her Majesty’s Apartment, with the glittering retinue of Dukes, Duchesses, and mere happy admiring faces, can let Necker and Philosophedom croak.
+Calonne had all the right credentials: experienced administrator, well-connected, friends in finance. And more importantly, he had STYLE.
 
-The misery is, such a time cannot last! Squandering, and Payment by Loan is no way to choke a Deficit. Neither is oil the substance for quenching conflagrations;—but, only for assuaging them, *not* permanently! To the Nonpareil himself, who wanted not insight, it is clear at intervals, and dimly certain at all times, that his trade is by nature temporary, growing daily more difficult; that changes incalculable lie at no great distance. Apart from financial Deficit, the world is wholly in such a new-fangled humour; all things working loose from their old fastenings, towards new issues and combinations. There is not a dwarf *jokei*, a cropt Brutus’-head, or Anglomaniac horseman rising on his stirrups, that does not betoken change. But what then? The day, in any case, passes pleasantly; for the morrow, if the morrow come, there shall be counsel too. Once mounted (by munificence, suasion, magic of genius) high enough in favour with the Œil-de-Bœuf, with the King, Queen, Stock-Exchange, and so far as possible with all men, a Nonpareil Controller may hope to go careering through the Inevitable, in some unimagined way, as handsomely as another.
+Where previous ministers had been gloomy penny-pinchers, Calonne *radiated* confidence. He seemed to have unlimited solutions for any problem. When Queen Marie Antoinette told him something would be difficult, he replied:
 
-At all events, for these three miraculous years, it has been expedient heaped on expedient; till now, with such cumulation and height, the pile topples perilous. And here has this world’s-wonder of a Diamond Necklace brought it at last to the clear verge of tumbling. Genius in that direction can no more: mounted high enough, or not mounted, we must fare forth. Hardly is poor Rohan, the Necklace-Cardinal, safely bestowed in the Auvergne Mountains, Dame de Lamotte (unsafely) in the Salpêtrière, and that mournful business hushed up, when our sanguine Controller once more astonishes the world. An expedient, unheard of for these hundred and sixty years, has been propounded; and, by dint of suasion (for his light audacity, his hope and eloquence are matchless) has been got adopted,—*Convocation of the Notables.*
+> "Madame, if it is merely difficult, it is done. If it is impossible, it shall be done."
 
-Let notable persons, the actual or virtual rulers of their districts, be summoned from all sides of France: let a true tale, of his Majesty’s patriotic purposes and wretched pecuniary impossibilities, be suasively told them; and then the question put: What are we to do? Surely to adopt healing measures; such as the magic of genius will unfold; such as, once sanctioned by Notables, all Parlements and all men must, with more or less reluctance, submit to.
+That's the Calonne energy.
 
-[^51]: Besenval, iii. 216.
+He charmed everyone. At royal parties, he was the life of the room despite carrying "the weight of a world" on his shoulders. He made work look effortless. He made the impossible seem routine. The court absolutely LOVED him.
+
+## The Magic Trick
+
+How did Calonne do it? Simple: **he borrowed EVERYTHING**.
+
+Need to fund the court? Borrow it.
+Stock exchange looking shaky? Throw borrowed money at it.
+Bills coming due? Borrow more to pay them.
+
+Estimates suggest he was spending roughly a million livres A DAY in extraordinary expenses. That's about 50,000 pounds sterling in contemporary money. PER DAY.
+
+But the loans kept getting filled! The markets stayed calm! The courtiers got their payments! It was like the good times had returned!
+
+Of course, he was basically running France's credit card up to the absolute maximum, paying each month's minimum with next month's loan. Anyone with basic math skills could see this wasn't sustainable. But it FELT good. And feeling good was, for the moment, enough.
+
+## The Skeptics
+
+Necker, from exile, published a bestselling critique of the royal finances. (80,000 copies sold!) The philosophes grumbled that Calonne was a charlatan.
+
+But Calonne didn't worry. Surrounded by admiring duchesses and grateful courtiers, he let the critics croak. Today was going well. Tomorrow? Tomorrow would take care of itself.
+
+## The Clock Was Ticking
+
+Calonne wasn't stupid. He knew his magic trick had an expiration date. The debts were piling up. Change was coming—you could see it everywhere, from the weird English fashions to the revolutionary ideas floating through the salons.
+
+His calculation: If he could build up enough political capital, enough friends at court, enough goodwill among the powerful—maybe, when the crisis came, he could surf it rather than drown in it.
+
+For three years, the strategy worked. The sunshine lasted. The party continued.
+
+## And Then the Necklace
+
+The Diamond Necklace Affair of 1785 (which we covered earlier) didn't directly involve Calonne, but it poisoned everything. The Queen's reputation was destroyed. Public trust in the monarchy collapsed. The party at Versailles suddenly didn't seem so innocent.
+
+By 1786, the bills were coming due and there was nothing left to borrow.
+
+Calonne, ever the creative genius, came up with one last audacious play: **The Assembly of Notables**.
+
+## The Hail Mary
+
+The idea was this: summon the most important people in France—nobles, clergy, judges, officials—and explain the situation honestly. The King's finances are a disaster. Something drastic must be done. Here are some proposals (spoiler: taxing the rich). Please approve them so we can avoid catastrophe.
+
+It hadn't been tried since 1626. It was basically admitting that the normal system was broken. But Calonne figured: I'm charming. I can sell anything. Let me get these Notables in a room and work my magic.
+
+The Assembly was called for February 1787.
+
+It was going to go VERY differently than Calonne expected.
+
+But that's the next chapter.
