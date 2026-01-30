@@ -1,25 +1,73 @@
-# Grown Electric
+# Grown Electric: The Atmosphere Before the Storm
 
-But now also National Deputies from all ends of France are in Paris, with their commissions, what they call pouvoirs, or powers, in their pockets; inquiring, consulting; looking out for lodgings at Versailles. The States-General shall open there, if not on the First, then surely on the Fourth of May, in grand procession and gala. The *Salle des Menus* is all new-carpentered, bedizened for them; their very costume has been fixed; a grand controversy which there was, as to “slouch-hats or slouched-hats,” for the Commons Deputies, has got as good as adjusted. Ever new strangers arrive; loungers, miscellaneous persons, officers on furlough,—as the worthy Captain Dampmartin, whom we hope to be acquainted with: these also, from all regions, have repaired hither, to see what is toward. Our Paris Committees, of the Sixty Districts, are busier than ever; it is now too clear, the Paris Elections will be late.
+May 1789. The deputies have gathered. The tension is unbearable. France feels like a thundercloud about to break.
 
-On Monday, the 27th of April, Astronomer Bailly notices that the Sieur Réveillon is not at his post. The Sieur Réveillon, “extensive Paper Manufacturer of the Rue St. Antoine;” he, commonly so punctual, is absent from the Electoral Committee;—and even will never reappear there. In those “immense Magazines of velvet paper” has aught befallen? Alas, yes! Alas, it is no Montgolfier rising there today; but Drudgery, Rascality and the Suburb that is rising! Was the Sieur Réveillon, himself once a journeyman, heard to say that “a journeyman might live handsomely on fifteen *sous* a-day?” Some sevenpence halfpenny: ’tis a slender sum! Or was he only thought, and believed, to be heard saying it? By this long chafing and friction it would appear the National temper has got *electric*.
+## The Scene at Versailles
 
-Down in those dark dens, in those dark heads and hungry hearts, who knows in what strange figure the new Political Evangel may have shaped itself; what miraculous “Communion of Drudges” may be getting formed! Enough: grim individuals, soon waxing to grim multitudes, and other multitudes crowding to see, beset that Paper-Warehouse; demonstrate, in loud ungrammatical language (addressed to the passions too), the insufficiency of sevenpence halfpenny a-day. The City-watch cannot dissipate them; broils arise and bellowings; Réveillon, at his wits’ end, entreats the Populace, entreats the authorities. Besenval, now in active command, Commandant of Paris, does, towards evening, to Réveillon’s earnest prayer, send some thirty Gardes Françaises. These clear the street, happily without firing; and take post there for the night in hope that it may be all over.[^127]
+Nearly 1,200 deputies have arrived in Versailles. They fill the hotels and rooming houses. They crowd the cafés. They gather in informal meetings, sizing each other up, making alliances, plotting strategy.
 
-Not so: on the morrow it is far worse. Saint-Antoine has arisen anew, grimmer than ever;—reinforced by the unknown Tatterdemalion Figures, with their enthusiast complexion and large sticks. The City, through all streets, is flowing thitherward to see: “two cartloads of paving-stones, that happened to pass that way” have been seized as a visible godsend. Another detachment of Gardes Françaises must be sent; Besenval and the Colonel taking earnest counsel. Then still another; they hardly, with bayonets and menace of bullets, penetrate to the spot. What a sight! A street choked up, with lumber, tumult and the endless press of men. A Paper-Warehouse eviscerated by axe and fire: mad din of Revolt; musket-volleys responded to by yells, by miscellaneous missiles; by tiles raining from roof and window,—tiles, execrations and slain men!
+The Third Estate deputies are especially restless. They know they represent the overwhelming majority of French people. They have double the numbers of either privileged order. But will they have double the POWER? Or will they be reduced to observers while the nobles and clergy call the shots?
 
-The Gardes Françaises like it not, but have to persevere. All day it continues, slackening and rallying; the sun is sinking, and Saint-Antoine has not yielded. The City flies hither and thither: alas, the sound of that musket-volleying booms into the far dining-rooms of the Chaussée d’Antin; alters the tone of the dinner-gossip there. Captain Dampmartin leaves his wine; goes out with a friend or two, to see the fighting. Unwashed men growl on him, with murmurs of ‘*À bas les Aristocrates* (Down with the Aristocrats);’ and insult the cross of St. Louis? They elbow him, and hustle him; but do not pick his pocket;—as indeed at Réveillon’s too there was not the slightest stealing.[^128]
+## The Electrical Metaphor
 
-At fall of night, as the thing will not end, Besenval takes his resolution: orders out the *Gardes Suisses* with two pieces of artillery. The Swiss Guards shall proceed thither; summon that rabble to depart, in the King’s name. If disobeyed, they shall load their artillery with grape-shot, visibly to the general eye; shall again summon; if again disobeyed, fire,—and keep firing “till the last man” be in this manner blasted off, and the street clear. With which spirited resolution, as might have been hoped, the business is got ended. At sight of the lit matches, of the foreign red-coated Switzers, Saint-Antoine dissipates; hastily, in the shades of dusk. There is an encumbered street; there are “from four to five hundred” dead men. Unfortunate Réveillon has found shelter in the Bastille; does therefrom, safe behind stone bulwarks, issue, plaint, protestation, explanation, for the next month. Bold Besenval has thanks from all the respectable Parisian classes; but finds no special notice taken of him at Versailles,—a thing the man of true worth is used to.[^129]
+Contemporary observers kept using the language of ELECTRICITY to describe the atmosphere. It was "charged." There were "sparks." Things could "ignite" at any moment.
 
-But how it originated, this fierce electric sputter and explosion? From D’Orléans! cries the Court-party: he, with his gold, enlisted these Brigands,—surely in some surprising manner, without sound of drum: he raked them in hither, from all corners; to ferment and take fire; evil is his good. From the Court! cries enlightened Patriotism: it is the cursed gold and wiles of Aristocrats that enlisted them; set them upon ruining an innocent Sieur Réveillon; to frighten the faint, and disgust men with the career of Freedom.
+This wasn't just metaphor. The late 18th century was fascinated with electricity—Benjamin Franklin's experiments were famous throughout Europe. Mesmer's "animal magnetism" had recently scandalized Paris. People understood, vaguely, that invisible forces could accumulate and then discharge with devastating power.
 
-Besenval, with reluctance, concludes that it came from “the English, our natural enemies.” Or, alas, might not one rather attribute it to Diana in the shape of Hunger? To some twin *Dioscuri*, OPPRESSION and REVENGE; so often seen in the battles of men? Poor Lackalls, all betoiled, besoiled, encrusted into dim defacement; into whom nevertheless the breath of the Almighty has breathed a living soul! To them it is clear only that eleutheromaniac Philosophism has yet baked no bread; that Patrioti Committee-men will level down to their own level, and no lower. Brigands, or whatever they might be, it was bitter earnest with them. They bury their dead with the title of *Défenseurs de la Patrie*, Martyrs of the good Cause.
+France in May 1789 was exactly like that: pressure building, pressure building, pressure building... waiting for something to set it off.
 
-Or shall we say: Insurrection has now served its Apprenticeship; and this was its proof-stroke, and no inconclusive one? Its next will be a master-stroke; announcing indisputable Mastership to a whole astonished world. Let that rock-fortress, Tyranny’s stronghold, which they name *Bastille*, or *Building*, as if there were no other building,—look to its guns!
+## The Issues in Play
 
-But, in such wise, with primary and secondary Assemblies, and *Cahiers* of Grievances; with motions, congregations of all kinds; with much thunder of froth-eloquence, and at last with thunder of platoon-musquetry,—does agitated France accomplish its Elections. With confused winnowing and sifting, in this rather tumultuous manner, it has now (all except some remnants of Paris) sifted out the true wheat-grains of National Deputies, Twelve Hundred and Fourteen in number; and will forthwith open its States-General.
+Three big questions hung in the air:
 
-[^127]: Besenval, iii. 385-8.
-[^128]: Evènemens qui se sont passés sous mes yeux pendant la Révolution
-[^129]: Besenval, iii. 389.
+**Verification of credentials**: Should each estate verify its own deputies' credentials separately? Or should all three estates meet together for this? Boring-sounding, but crucial—if they met together once, they might stay together.
+
+**Voting procedure**: Head or order? Still unresolved. The Third Estate wanted head count. The nobles wanted separate orders. The clergy was split.
+
+**What to actually DO**: Even if the procedural questions got solved, what would the States-General accomplish? How much reform was possible? Would the King actually accept changes?
+
+## The Informal Networks
+
+Before the official opening, deputies were already organizing themselves.
+
+At the Café Amaury and similar establishments, reform-minded deputies gathered. The "Breton Club" emerged—delegates from Brittany, known for their radicalism, who attracted like-minded deputies from other regions. This was the embryo of what would become the Jacobin Club.
+
+Mirabeau was everywhere, talking to everyone, making himself essential. His past scandals followed him, but so did his obvious genius.
+
+Necker, still the popular hero, received endless delegations and petitions. Everyone expected him to produce miracles.
+
+## The Royal Family
+
+Louis XVI was... Louis XVI. Hesitant, well-meaning, out of his depth.
+
+Marie Antoinette was in mourning—their eldest son, the Dauphin, had been dying of tuberculosis throughout this period (he would die on June 4). The tragedy colored everything. A mother's grief, overlaid on political crisis.
+
+The Count d'Artois and other hardliners pushed the King not to give an inch. The liberals around Necker pushed for conciliation. Louis vacillated between them, as always.
+
+## The People
+
+Outside the halls of power, ordinary French people watched and waited.
+
+In Paris, the crowds were restless. Bread was still expensive. Work was still scarce. The Réveillon riot had been suppressed, but the anger hadn't gone away.
+
+Across the countryside, peasants who had submitted their grievances wondered if anything would change. Would the seigneurs lose their hunting rights? Would the tax burden be shifted? Would there finally be justice?
+
+The weight of their hopes pressed down on those 1,200 deputies gathering at Versailles.
+
+## The Night Before
+
+On the evening of May 4, 1789, everybody knew that something was about to happen. But what?
+
+The conservative nobles thought they'd weather this, as their ancestors had weathered other crises. The privileges would survive. The essential order would remain.
+
+The radical reformers dreamed of a new constitution, a new France, a new order of liberty and equality.
+
+The King hoped for modest reforms that would refill his treasury without costing him any real power.
+
+The people hoped for bread and justice.
+
+Somebody was going to be very, very wrong.
+
+Tomorrow would be the grand procession. The day after, the official opening.
+
+And then the storm would break.
