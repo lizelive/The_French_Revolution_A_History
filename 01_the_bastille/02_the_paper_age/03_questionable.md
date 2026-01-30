@@ -1,21 +1,57 @@
-# Questionable
+# Questionable: Is This Hope or Just Cope?
 
-Or is this same Age of Hope itself but a simulacrum; as Hope too often is? Cloud-vapour with rainbows painted on it, beautiful to see, to sail towards,—which hovers over Niagara Falls? In that case, victorious Analysis will have enough to do.
+Here's a disturbing thought: What if this whole "Age of Hope" is just a beautiful illusion? Like a rainbow painted on mist—gorgeous to look at, but try to sail towards it and you fall off Niagara Falls?
 
-Alas, yes! a whole world to remake, if she could see it; work for another than she! For all is wrong, and gone out of joint; the inward spiritual, and the outward economical; head or heart, there is no soundness in it. As indeed, evils of all sorts are more or less of kin, and do usually go together: especially it is an old truth, that wherever huge physical evil is, there, as the parent and origin of it, has moral evil to a proportionate extent been. Before those five-and-twenty labouring Millions, for instance, could get that haggardness of face, which old Mirabeau now looks on, in a Nation calling itself Christian, and calling man the brother of man,—what unspeakable, nigh infinite Dishonesty (of *seeming* and not *being*) in all manner of Rulers, and appointed Watchers, spiritual and temporal, must there not, through long ages, have gone on accumulating! It will accumulate: moreover, it will reach a head; for the first of all Gospels is this, that a Lie cannot endure for ever.
+## The Uncomfortable Truth
 
-In fact, if we pierce through that rosepink vapour of Sentimentalism, Philanthropy, and Feasts of Morals, there lies behind it one of the sorriest spectacles. You might ask, What bonds that ever held a human society happily together, or held it together at all, are in force here? It is an unbelieving people; which has suppositions, hypotheses, and froth-systems of victorious Analysis; and for *belief* this mainly, that Pleasure is pleasant. Hunger they have for all sweet things; and the law of Hunger; but what other law? Within them, or over them, properly none!
+Beneath all the salon chatter about progress and perfectibility, France is a MESS. The economy is broken. The church is a zombie. The government doesn't actually govern anything. And 25 million people are one bad harvest away from starvation.
 
-Their King has become a King Popinjay; with his Maurepas Government, gyrating as the weather-cock does, blown about by every wind. Above them they see no God; or they even do not look above, except with astronomical glasses. The Church indeed still is; but in the most submissive state; quite tamed by Philosophism; in a singularly short time; for the hour was come. Some twenty years ago, your Archbishop Beaumont would not even let the poor Jansenists get buried: your Loménie Brienne (a rising man, whom we shall meet with yet) could, in the name of the Clergy, insist on having the Anti-protestant laws, which condemn to death for preaching, “put in execution.”[^31] And, alas, now not so much as Baron Holbach’s Atheism can be burnt,—except as pipe-matches by the private speculative individual. Our Church stands haltered, dumb, like a dumb ox; lowing only for provender (of tithes); content if it can have that; or, dumbly, dully expecting its further doom. And the Twenty Millions of “haggard faces;” and, as finger-post and guidance to them in their dark struggle, “a gallows forty feet high”! Certainly a singular Golden Age; with its Feasts of Morals, its “sweet manners,” its sweet institutions (*institutions douces*); betokening nothing but peace among men!—Peace? O Philosophe-Sentimentalism, what hast thou to do with peace, when thy mother’s name is Jezebel? Foul Product of still fouler Corruption, thou with the corruption art doomed!
+All those haggard faces the Marquis de Mirabeau saw at the festival? They exist because generations of rulers—kings, nobles, bishops, bureaucrats—have been systematically lying, cheating, and stealing from the people they were supposed to protect.
 
-Meanwhile it is singular how long the rotten will hold together, provided you do not handle it roughly. For whole generations it continues standing, “with a ghastly affectation of life,” after all life and truth has fled out of it; so loth are men to quit their old ways; and, conquering indolence and inertia, venture on new. Great truly is the Actual; is the Thing that has rescued itself from bottomless deeps of theory and possibility, and stands there as a definite indisputable Fact, whereby men do work and live, or once did so. Widely shall men cleave to that, while it will endure; and quit it with regret, when it gives way under them. Rash enthusiast of Change, beware! Hast thou well considered all that Habit does in this life of ours; how all Knowledge and all Practice hang wondrous over infinite abysses of the Unknown, Impracticable; and our whole being is an infinite abyss, *overarched* by Habit, as by a thin Earth-rind, laboriously built together?
+You don't get THAT level of poverty in a supposedly Christian nation without what we might call "institutional dishonesty on an epic scale." Every generation of rulers took their cut and looked the other way. The bill kept growing. And sooner or later, bills come due.
 
-But if “every man,” as it has been written, “holds confined within him a *mad*-man,” what must every Society do;—Society, which in its commonest state is called “the standing miracle of this world”! “Without such Earth-rind of Habit,” continues our author, “call it System of Habits, in a word, *fixed ways* of acting and of believing,—Society would not exist at all. With such it exists, better or worse. Herein too, in this its System of Habits, acquired, retained how you will, lies the true Law-Code and Constitution of a Society; the only Code, though an unwritten one which it can in nowise *dis*obey. The thing we call written Code, Constitution, Form of Government, and the like, what is it but some miniature image, and solemnly expressed summary of this unwritten Code? *Is*,—or rather alas, is *not;* but only should be, and always tends to be! In which latter discrepancy lies struggle without end.” And now, we add in the same dialect, let but, by ill chance, in such ever-enduring struggle,—your “thin Earth-rind” be once *broken!* The fountains of the great deep boil forth; fire-fountains, enveloping, engulfing. Your “Earth-rind” is shattered, swallowed up; instead of a green flowery world, there is a waste wild-weltering chaos:—which has again, with tumult and struggle, to *make* itself into a world.
+As someone once said: **A lie cannot last forever.**
 
-On the other hand, be this conceded: Where thou findest a Lie that is oppressing thee, extinguish it. Lies exist there only to be extinguished; they wait and cry earnestly for extinction. Think well, meanwhile, in what spirit thou wilt do it: not with hatred, with headlong selfish violence; but in clearness of heart, with holy zeal, gently, almost with pity. Thou wouldst not *replace* such extinct Lie by a new Lie, which a new Injustice of thy own were; the parent of still other Lies? Whereby the latter end of that business were worse than the beginning.
+## What Actually Holds Society Together?
 
-So, however, in this world of ours, which has both an indestructible hope in the Future, and an indestructible tendency to persevere as in the Past, must Innovation and Conservation wage their perpetual conflict, as they may and can. Wherein the “dæmonic element,” that lurks in all human things, *may* doubtless, some once in the thousand years—get vent! But indeed may we not regret that such conflict,—which, after all, is but like that classical one of “hate-filled Amazons with heroic Youths,” and will end in *embraces*,—should usually be so spasmodic? For Conservation, strengthened by that mightiest quality in us, our indolence, sits for long ages, not victorious only, which she should be; but tyrannical, incommunicative. She holds her adversary as if annihilated; such adversary lying, all the while, like some buried Enceladus; who, to gain the smallest freedom, must stir a whole Trinacria with it Ætnas.
+Strip away the beautiful theories, and what do you find? A society with no real beliefs. The intellectuals believe in "pleasure" and "analysis." The aristocrats believe in getting theirs. The clergy have been completely tamed by the Enlightenment critics—twenty years ago, they were trying to prevent Protestants from being buried; now they can't even get Baron d'Holbach's atheist books banned.
 
-Wherefore, on the whole, we will honour a Paper Age too; an Era of hope! For in this same frightful process of Enceladus Revolt; when the task, on which no mortal would willingly enter, has become imperative, inevitable,—is it not even a kindness of Nature that she lures us forward by cheerful promises, fallacious or not; and a whole generation plunges into the Erebus Blackness, lighted on by an Era of Hope? It has been well said: “Man is based on Hope; he has properly no other possession but Hope; this habitation of his is named the Place of Hope.”
+The Church just stands there "like a dumb ox, lowing for its provender of tithes."
 
-[^31]: Boissy d’Anglas, Vie de Malesherbes , i. 15-22.
+Meanwhile, the working people have NOTHING—and what guides them through their darkness? A forty-foot-tall gallows.
+
+Some Golden Age.
+
+## A Paradox of Social Change
+
+Here's something to think about: Societies are held together by HABITS. Not written laws, not philosophies, but just... the way we've always done things. These habits form a kind of "thin crust" over the churning chaos underneath.
+
+Written constitutions and legal codes are just summaries of these underlying habits—snapshots of "how things work around here." When the written law matches the real habits, society functions. When they diverge, you get problems.
+
+And when that thin crust BREAKS? 
+
+Then the "fountains of the great deep" burst forth. Fire-fountains. Chaos. Everything solid melts into air, and you have to somehow build a new world from the rubble.
+
+That's what revolutions are. They're what happens when the crust gives way.
+
+## The Conservative Warning
+
+Before you get too excited about smashing the old order, consider this: When you find a lie that's oppressing you, yes, you should extinguish it. But HOW you do it matters enormously.
+
+Do it with hatred and selfish violence, and you'll just replace the old lie with a NEW lie born of your own injustice. Then things get worse, not better.
+
+The French are about to learn this lesson the hard way.
+
+## Why Hope Anyway?
+
+Given all this, why are people so optimistic? Maybe because we have no choice. Humans run on hope. It's our operating system. "Man is based on Hope; he has properly no other possession but Hope; this habitation of his is named the Place of Hope."
+
+And maybe—just maybe—it's actually a kindness that nature deludes us with cheerful promises before plunging us into darkness. A whole generation is about to march into the abyss, but they're doing it under a banner that says "Progress!" and "Liberty!" and "The Future!"
+
+Would they march if they could see what's actually coming?
+
+Probably not.
+
+So let them have their hopes. The Age of Paper rolls on. The illusions hold, for now.
+
+But underground, Enceladus stirs...

@@ -1,51 +1,89 @@
-# Mercury de Brézé
+# Mercury de Brézé: The Royal Messenger Gets Told Off
 
-Now surely were the time for a “god from the machine;” there is a *nodus* worthy of one. The only question is, Which god? Shall it be Mars de Broglie, with his hundred pieces of cannon?—Not yet, answers prudence; so soft, irresolute is King Louis. Let it be Messenger *Mercury*, our Supreme Usher de Brézé.
+June 17, 1789. The Third Estate is done waiting.
 
-On the morrow, which is the 20th of June, these Hundred and Forty-nine false Curates, no longer restrainable by his Grace of Paris, will desert in a body: let De Brézé intervene, and produce—closed doors! Not only shall there be Royal Session, in that Salle des Menus; but no meeting, nor working (except by carpenters), till then. Your Third Estate, self-styled “National Assembly,” shall suddenly see itself extruded from its Hall, by carpenters, in this dexterous way; and reduced to do nothing, not even to meet, or articulately lament,—till Majesty, with *Séance Royale* and new miracles, be ready! In this manner shall De Brézé, as Mercury *ex machinâ*, intervene; and, if the Œil-de-Bœuf mistake not, work deliverance from the *nodus*.
+## The Declaration
 
-Of poor De Brézé we can remark that he has yet prospered in none of his dealings with these Commons. Five weeks ago, when they kissed the hand of Majesty, the mode he took got nothing but censure; and then his “sincere attachment,” how was it scornfully whiffed aside! Before supper, this night, he writes to President Bailly, a new Letter, to be delivered shortly after dawn tomorrow, in the King’s name. Which Letter, however, Bailly in the pride of office, will merely crush together into his pocket, like a bill he does not mean to pay.
+After weeks of deadlock, the Third Estate took the nuclear option. On June 17, by a vote of 491 to 90, they declared themselves the **National Assembly**.
 
-Accordingly on Saturday morning the 20th of June, shrill-sounding heralds proclaim through the streets of Versailles, that there is to be a *Séance Royale* next Monday; and no meeting of the States-General till then. And yet, we observe, President Bailly in sound of this, and with De Brézé’s Letter in his pocket, is proceeding, with National Assembly at his heels, to the accustomed Salles des Menus; as if De Brézé and heralds were mere wind. It is shut, this Salle; occupied by Gardes Françaises. ‘Where is your Captain?’ The Captain shows his royal order: workmen, he is grieved to say, are all busy setting up the platform for his Majesty’s *Séance;* most unfortunately, no admission; admission, at furthest, for President and Secretaries to bring away papers, which the joiners might destroy!—President Bailly enters with Secretaries; and returns bearing papers: alas, within doors, instead of patriotic eloquence, there is now no noise but hammering, sawing, and operative screeching and rumbling! A profanation without parallel.
+Not the "Third Estate." Not "one third of the States-General." THE NATIONAL ASSEMBLY—the representative body of the entire French nation.
 
-The Deputies stand grouped on the Paris Road, on this umbrageous *Avenue de Versailles;* complaining aloud of the indignity done them. Courtiers, it is supposed, look from their windows, and giggle. The morning is none of the comfortablest: raw; it is even drizzling a little.[^149] But all travellers pause; patriot gallery-men, miscellaneous spectators increase the groups. Wild counsels alternate. Some desperate Deputies propose to go and hold session on the great outer Staircase at Marly, under the King’s windows; for his Majesty, it seems, has driven over thither. Others talk of making the Château Forecourt, what they call *Place d’Armes*, a Runnymede and new *Champ de Mai* of free Frenchmen: nay of awakening, to sounds of indignant Patriotism, the echoes of the Œil-de-boeuf itself.—Notice is given that President Bailly, aided by judicious Guillotin and others, has found place in the Tennis-Court of the Rue St. François. Thither, in long-drawn files, hoarse-jingling, like cranes on wing, the Commons Deputies angrily wend.
+The declaration included a crucial provision: all existing taxes were technically illegal (since the nation hadn't consented to them), but they would be provisionally continued until the Assembly finished its work. This was a brilliant move: if the government dissolved the Assembly, tax collection would collapse and the state would go bankrupt immediately.
 
-Strange sight was this in the Rue St. François, Vieux Versailles! A naked Tennis-Court, as the pictures of that time still give it: four walls; naked, except aloft some poor wooden penthouse, or roofed spectators’-gallery, hanging round them:—on the floor not now an idle teeheeing, a snapping of balls and rackets; but the bellowing din of an indignant National Representation, scandalously exiled hither! However, a cloud of witnesses looks down on them, from wooden penthouse, from wall-top, from adjoining roof and chimney; rolls towards them from all quarters, with passionate spoken blessings. Some table can be procured to write on; some chair, if not to sit on, then to stand on. The Secretaries undo their tapes; Bailly has constituted the Assembly.
+The Third Estate had essentially told the King: We're the government now. Deal with it.
 
-Experienced Mounier, not wholly new to such things, in Parlementary revolts, which he has seen or heard of, thinks that it were well, in these lamentable threatening circumstances, to unite themselves by an Oath.—Universal acclamation, as from smouldering bosoms getting vent! The Oath is redacted; pronounced aloud by President Bailly,—and indeed in such a sonorous tone, that the cloud of witnesses, even outdoors, hear it, and bellow response to it. Six hundred right-hands rise with President Bailly’s, to take God above to witness that they will not separate for man below, but will meet in all places, under all circumstances, wheresoever two or three can get together, till they have made the Constitution. Made the Constitution, Friends! That is a long task. Six hundred hands, meanwhile, will sign as they have sworn: six hundred save one; one Loyalist Abdiel, still visible by this sole light-point, and nameable, poor “M. Martin d’Auch, from Castelnaudary, in Languedoc.” Him they permit to sign or signify refusal; they even save him from the cloud of witnesses, by declaring “his head deranged.” At four o’clock, the signatures are all appended; new meeting is fixed for Monday morning, earlier than the hour of the Royal Session; that our Hundred and Forty-nine Clerical deserters be not balked: we shall meet “at the Recollets Church or elsewhere,” in hope that our Hundred and Forty-nine will join us;—and now it is time to go to dinner.
+## The Clergy Breaks
 
-This, then, is the Session of the Tennis-Court, famed *Séance du Jeu de Paume;* the fame of which has gone forth to all lands. This is Mercurius de Brézé’s appearance as *Deus ex machinâ;* this is the fruit it brings! The giggle of Courtiers in the Versailles Avenue has already died into gaunt silence. Did the distracted Court, with Gardes-des-Sceaux Barentin, Triumvirate and Company, imagine that they could scatter six hundred National Deputies, big with a National Constitution, like as much barndoor poultry, big with next to nothing,—by the white or black rod of a Supreme Usher? Barndoor poultry fly cackling: but National Deputies turn round, lion-faced; and, with uplifted right-hand, swear an Oath that makes the four corners of France tremble.
+Two days later, on June 19, the clergy voted—by a narrow margin—to join the National Assembly. The parish priests had won out over the bishops.
 
-President Bailly has covered himself with honour; which shall become rewards. The National Assembly is now doubly and trebly the Nation’s Assembly; not militant, martyred only, but triumphant; insulted, and which could not *be* insulted. Paris disembogues itself once more, to witness, “with grim looks,” the *Séance Royale:*[^150] which, by a new felicity, is postponed till Tuesday. The Hundred and Forty-nine, and even with Bishops among them, all in processional mass, have had free leisure to march off, and solemnly join the Commons sitting waiting in their Church. The Commons welcomed them with shouts, with embracings, nay with tears;[^151] for it is growing a life-and-death matter now.
+This was huge. One of the privileged orders had defected. The unity of the old system was broken.
 
-As for the *Séance* itself, the Carpenters seem to have accomplished their platform; but all else remains unaccomplished. Futile, we may say fatal, was the whole matter. King Louis enters, through seas of people, all grim-silent, angry with many things,—for it is a bitter rain too. Enters, to a Third Estate, likewise grim-silent; which has been wetted waiting under mean porches, at back-doors, while Court and Privileged were entering by the front. King and Garde-des-Sceaux (there is no Necker visible) make known, not without longwindedness, the determinations of the royal breast. The Three Orders *shall* vote separately. On the other hand, France may look for considerable constitutional blessings; as specified in these Five-and-thirty Articles,[^152] which Garde-des-Sceaux is waxing hoarse with reading. Which Five-and-Thirty Articles, adds his Majesty again rising, if the Three Orders most unfortunately cannot agree together to effect them, I myself will effect: ‘*seul je ferai le bien de mes peuples*,’—which being interpreted may signify, You, contentious Deputies of the States-General, have probably not long to be here! But, in fine, all shall now withdraw for this day; and meet again, each Order in its separate place, tomorrow morning, for despatch of business. *This* is the determination of the royal breast: pithy and clear. And herewith King, retinue, Noblesse, majority of Clergy file out, as if the whole matter were satisfactorily completed.
+Some liberal nobles wanted to join too, but their assembly was controlled by hardliners who refused to budge.
 
-These file out; through grim-silent seas of people. Only the Commons Deputies file not out; but stand there in gloomy silence, uncertain what they shall do. One man of them is certain; one man of them discerns and dares! It is now that King Mirabeau starts to the Tribune, and lifts up his lion-voice. Verily a word in season; for, in such scenes, the moment is the mother of ages! Had not Gabriel Honoré been there,—one can well fancy, how the Commons Deputies, affrighted at the perils which now yawned dim all round them, and waxing ever paler in each other’s paleness, might very naturally, one after one, have *glided off;* and the whole course of European History have been different!
+## The Court Strikes Back
 
-But he is there. List to the *brool* of that royal forest-voice; sorrowful, low; fast swelling to a roar! Eyes kindle at the glance of his eye:—National Deputies were missioned by a Nation; they have sworn an Oath; they—but lo! while the lion’s voice roars loudest, what Apparition is this? Apparition of Mercurius de Brézé, muttering somewhat!—‘Speak out,’ cry several.—‘Messieurs,’ shrills De Brézé, repeating himself, ‘You have heard the King’s orders!’—Mirabeau glares on him with fire-flashing face; shakes the black lion’s mane: ‘Yes, Monsieur, we have heard what the King was advised to say: and you who cannot be the interpreter of his orders to the States-General; you, who have neither place nor right of speech here; *you* are not the man to remind us of it. Go, Monsieur, tell these who sent you that we are here by the will of the People, and that nothing shall send us hence but the force of bayonets!’[^153] And poor De Brézé shivers forth from the National Assembly;—and also (if it be not in one faintest glimmer, months later) finally from the page of History!—
+The royal court was in an uproar. The hardliners—Artois, the Queen's circle, the conservative nobles—screamed that this was revolution, treason, the end of everything.
 
-Hapless De Brézé; doomed to survive long ages, in men’s memory, in this faint way, with tremulent white rod! He was true to Etiquette, which was his Faith here below; a martyr to respect of persons. Short woollen cloaks could not kiss Majesty’s hand as long velvet ones did. Nay lately, when the poor little Dauphin lay dead, and some ceremonial Visitation came, was he not punctual to announce it even to the Dauphin’s *dead body:* ‘Monseigneur, a Deputation of the States-General!’[^154] *Sunt lachrymæ rerum.*
+Necker urged moderation. Accept the National Assembly as a fact, he argued. Work with it. Channel the energy toward useful reform.
 
-But what does the Œil-de-Bœuf, now when De Brézé shivers back thither? *Despatch* that same force of bayonets? Not so: the seas of people still hang multitudinous, intent on what is passing; nay rush and roll, loud-billowing, into the Courts of the Château itself; for a report has risen that Necker is to be dismissed. Worst of all, the Gardes Françaises seem indisposed to act: “two Companies of them *do not fire* when ordered!”[^155] Necker, for not being at the *Séance*, shall be shouted for, carried home in triumph; and must not be dismissed. His Grace of Paris, on the other hand, has to fly with broken coach-panels, and owe his life to furious driving. The *Gardes-du-Corps* (Body-Guards), which you were drawing out, had better be drawn in again.[^156] There is no sending of bayonets to be thought of.
+Louis XVI, as always, vacillated. But the hardliners seemed to be winning.
 
-Instead of soldiers, the Œil-de-Bœuf sends—carpenters, to take down the platform. Ineffectual shift! In few instants, the very carpenters cease wrenching and knocking at their platform; stand on it, hammer in hand, and listen open-mouthed.[^157] The Third Estate is decreeing that it is, was, and will be, nothing but a National Assembly; and now, moreover, an inviolable one, all members of it inviolable: “infamous, traitorous, towards the Nation, and guilty of capital crime, is any person, body-corporate, tribunal, court or commission that now or henceforth, during the present session or after it, shall dare to pursue, interrogate, arrest, or cause to be arrested, detain or cause to be detained, any,” &c. &c. “*on whose part soever* the same be commanded.”[^158] Which done, one can wind up with this comfortable reflection from Abbé Sieyes: ‘Messieurs, you are today what you were yesterday.’
+On June 20, the deputies arrived at their hall to find it locked. Soldiers stood guard. A notice said the hall was closed for "renovations" in preparation for a royal session.
 
-Courtiers may shriek; but it is, and remains, even so. Their well-charged explosion has exploded *through the touch-hole;* covering themselves with scorches, confusion, and unseemly soot! Poor Triumvirate, poor Queen; and above all, poor Queen’s Husband, who means well, had he any fixed meaning! Folly is that wisdom which is wise only behindhand. Few months ago these Thirty-five Concessions had filled France with a rejoicing, which might have lasted for several years. Now it is unavailing, the very mention of it slighted; Majesty’s express orders set at nought.
+## The Tennis Court Oath
 
-All France is in a roar; a sea of persons, estimated at “ten thousand,” whirls “all this day in the Palais Royal.”[^159] The remaining Clergy, and likewise some Forty-eight Noblesse, D’Orléans among them, have now forthwith gone over to the victorious Commons; by whom, as is natural, they are received “with acclamation.”
+Locked out? The deputies were FURIOUS.
 
-The Third Estate triumphs; Versailles Town shouting round it; ten thousand whirling all day in the Palais Royal; and all France standing a-tiptoe, not unlike whirling! Let the Œil-de-Bœuf look to it. As for King Louis, he will swallow his injuries; will temporise, keep silence; will at all costs have present peace. It was Tuesday the 23d of June, when he spoke that peremptory royal mandate; and the week is not done till he has written to the remaining obstinate Noblesse, that they also must oblige him, and give in. D’Espréménil rages his last; Barrel Mirabeau “breaks his sword,” making a vow,—which he might as well have kept. The “Triple Family” is now therefore complete; the third erring brother, the Noblesse, having joined it;—erring but pardonable; soothed, so far as possible, by sweet eloquence from President Bailly.
+This was clearly a trick to prevent them from meeting. But where could they go?
 
-So triumphs the Third Estate; and States-General are become National Assembly; and all France may sing *Te Deum*. By wise inertia, and wise cessation of inertia, great victory has been gained. It is the last night of June: all night you meet nothing on the streets of Versailles but “men running with torches” with shouts of jubilation. From the 2nd of May when they kissed the hand of Majesty, to this 30th of June when men run with torches, we count seven weeks complete. For seven weeks the National Carroccio has stood far-seen, ringing many a signal; and, so much having now gathered round it, may hope to stand.
+Someone suggested the Jeu de Paume—a nearby indoor tennis court. The deputies marched over, crammed themselves inside, and held their session anyway.
 
-[^149]: Bailly, Mémoires , i. 185-206.
-[^150]: See Arthur Young ( Travels , i. 115-118); A. Lameth, &c.
-[^151]: Dumont, Souvenirs sur Mirabeau , c. 4.
-[^152]: Histoire Parlementaire , i. 13.
-[^153]: Moniteur ( Hist. Parl. ii. 22.).
-[^154]: Montgaillard, ii. 38.
-[^155]: Histoire Parlementaire , ii. 26.
-[^156]: Bailly, i. 217.
-[^157]: Histoire Parlementaire , ii. 23.
-[^158]: Montgaillard, ii. 47.
-[^159]: Arthur Young, i. 119.
+In that tennis court, with rain drumming on the roof and emotions running high, they took an oath that changed history:
+
+> "We swear never to separate, and to meet wherever circumstances require, until the Constitution of the realm is established and fixed on solid foundations."
+
+The **Tennis Court Oath**. 
+
+With that oath, the deputies transformed themselves from a delegation that could be sent home into a permanent revolutionary body that would not stop until its work was done.
+
+Almost every deputy present signed. Only one refused.
+
+## The Royal Session
+
+On June 23, Louis XVI finally held his royal session. The setup was deliberately humiliating to the Third Estate—they had to enter through a back door while the nobles and clergy used the main entrance.
+
+The King announced his program: some useful reforms, but also a firm insistence that the three orders must deliberate separately. The declaration of the National Assembly was null and void. The deputies were ordered to disperse.
+
+Then Louis left. The nobles and most of the clergy filed out obediently.
+
+The Third Estate stayed put.
+
+## The Famous Exchange
+
+Enter the Marquis de Dreux-Brézé, the Grand Master of Ceremonies—basically the royal messenger boy for parliamentary matters.
+
+Brézé approached the defiant deputies and reminded them of the King's orders: the session was over, they must disperse.
+
+Mirabeau rose. In a voice that could reportedly be heard across the hall, he delivered the most famous line of the early Revolution:
+
+> "Go tell your master that we are here by the will of the people, and will only leave at the point of bayonets!"
+
+(Or something like that—the exact wording varies by account. But the meaning was clear: WE'RE NOT LEAVING.)
+
+Brézé went back to Louis with this message. Louis, bewildered, reportedly said: "They want to stay? Well then, damn it, let them stay."
+
+*Eh bien, f..., qu'ils restent.*
+
+The National Assembly had won.
+
+## The Aftermath
+
+Over the next few days, more clergy and then (on June 25) a significant group of liberal nobles led by the Duke of Orléans joined the Assembly.
+
+On June 27, Louis XVI officially capitulated. He ordered the remaining nobles and clergy to join the National Assembly and deliberate together.
+
+The Third Estate had won the first round. The principle of national sovereignty had triumphed over royal absolutism—at least for the moment.
+
+But the court hadn't given up. The hardliners were already planning their next move.
+
+Troops were being summoned to Paris...

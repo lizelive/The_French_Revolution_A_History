@@ -1,46 +1,105 @@
-# Louis the Unforgotten
+# Louis the Unforgotten (Spoiler: He'll Wish He Was)
 
-Poor Louis! With these it is a hollow phantasmagory, where like mimes they mope and mowl, and utter false sounds for hire; but with thee it is frightful earnest.
+Death is coming for Louis XV, and for once in his life, this is NOT a drill.
 
-Frightful to all men is Death; from of old named King of Terrors. Our little compact home of an Existence, where we dwelt complaining, yet as in a home, is passing, in dark agonies, into an Unknown of Separation, Foreignness, unconditioned Possibility. The Heathen Emperor asks of his soul: Into what places art thou now departing? The Catholic King must answer: To the Judgment-bar of the Most High God! Yes, it is a summing-up of Life; a final settling, and giving-in the “account of the deeds done in the body:” they are done now; and lie there unalterable, and do bear their fruits, long as Eternity shall last.
+## Facing the End
 
-Louis XV. had always the kingliest abhorrence of Death. Unlike that praying Duke of Orleans, *Egalité’s* grandfather,—for indeed several of them had a touch of madness,—who honesty believed that there was no Death! He, if the Court Newsmen can be believed, started up once on a time, glowing with sulphurous contempt and indignation on his poor Secretary, who had stumbled on the words, *feu roi d’Espagne* (the late King of Spain): ‘*Feu roi, Monsieur?*’—‘*Monseigneur*,’ hastily answered the trembling but adroit man of business, ‘*c’est une titre qu’ils prennent* (’tis a title they take).’[^15] Louis, we say, was not so happy; but he did what he could. He would not suffer Death to be spoken of; avoided the sight of churchyards, funereal monuments, and whatsoever could bring it to mind. It is the resource of the Ostrich; who, hard hunted, sticks his foolish head in the ground, and would fain forget that his foolish unseeing body is not unseen too. Or sometimes, with a spasmodic antagonism, significant of the same thing, and of more, he *would* go; or stopping his court carriages, would send into churchyards, and ask “how many new graves there were today,” though it gave his poor Pompadour the disagreeablest qualms. We can figure the thought of Louis that day, when, all royally caparisoned for hunting, he met, at some sudden turning in the Wood of Senart, a ragged Peasant with a coffin: ‘For whom?’—It was for a poor brother slave, whom Majesty had sometimes noticed slaving in those quarters. ‘What did he die of?’—‘Of hunger:’—the King gave his steed the spur.[^16]
+Death is terrifying. Everyone knows this. But it's especially terrifying when you've spent your whole life sinning on an industrial scale and you genuinely believe in a judgmental God. The Catholic afterlife includes options like Purgatory and Hell, and honestly? Louis has earned a spot in both brochures.
 
-But figure his thought, when Death is now clutching at his own heart-strings, unlooked for, inexorable! Yes, poor Louis, Death has found thee. No palace walls or life-guards, gorgeous tapestries or gilt buckram of stiffest ceremonial could keep him out; but he is here, here at thy very life-breath, and will extinguish it. Thou, whose whole existence hitherto was a chimera and scenic show, at length becomest a reality: sumptuous Versailles bursts asunder, like a dream, into void Immensity; Time is done, and all the scaffolding of Time falls wrecked with hideous clangour round thy soul: the pale Kingdoms yawn open; there must thou enter, naked, all unking’d, and await what is appointed thee! Unhappy man, there as thou turnest, in dull agony, on thy bed of weariness, what a thought is thine! Purgatory and Hell-fire, now all-too possible, in the prospect; in the retrospect,—alas, what thing didst thou do that were not better undone; what mortal didst thou generously help; what sorrow hadst thou mercy on? Do the “five hundred thousand” ghosts, who sank shamefully on so many battle-fields from Rossbach to Quebec, that thy Harlot might take revenge for an epigram,—crowd round thee in this hour? Thy foul Harem; the curses of mothers, the tears and infamy of daughters? Miserable man! thou “hast done evil as thou couldst:” thy whole existence seems one hideous abortion and mistake of Nature; the use and meaning of thee not yet known. Wert thou a fabulous Griffin, *devouring* the works of men; daily dragging virgins to thy cave;—clad also in scales that no spear would pierce: no spear but Death’s? A Griffin not fabulous but real! Frightful, O Louis, seem these moments for thee.—We will pry no further into the horrors of a sinner’s death-bed.
+What must be going through his mind? Those **500,000 soldiers** who died in pointless wars—from the catastrophic defeat at Rossbach (1757) to the loss of Quebec (1759)—wars fought not for France but to avenge his mistresses' petty grudges against foreign critics. His infamous *Parc-aux-Cerfs*, a private brothel stocked with young girls. The tears of mothers. The ruined daughters.
 
-And yet let no meanest man lay flattering unction to his soul. Louis was a Ruler; but art not thou also one? His wide France, look at it from the Fixed Stars (themselves not yet Infinitude), is no wider than thy narrow brickfield, where thou too didst faithfully, or didst unfaithfully. Man, “Symbol of Eternity imprisoned into Time!” it is not thy works, which are all mortal, infinitely little, and the greatest no greater than the least, but only the Spirit thou workest in, that can have worth or continuance.
+"Thou hast done evil as thou couldst," as they used to say. Louis's entire existence was basically an extended crime spree against the French people.
 
-But reflect, in any case, what a life-problem this of poor Louis, when he rose as *Bien-Aimé* from that Metz sick-bed, really was! What son of Adam could have swayed such incoherences into coherence? Could he? Blindest Fortune alone has cast *him* on the top of it: he swims there; can as little sway it as the drift-log sways the wind-tossed moon-stirred Atlantic. ‘What have I done to be so loved?’ he said then. He may say now: What have I done to be so hated? Thou hast done nothing, poor Louis! Thy fault is properly even this, that thou didst *nothing*. What could poor Louis do? Abdicate, and wash his hands of it,—in favour of the first that would accept! Other clear wisdom there was none for him. As it was, he stood gazing dubiously, the absurdest mortal extant (a very Solecism Incarnate), into the absurdest confused world;—wherein at lost nothing seemed so certain as that he, the incarnate Solecism, had five senses; that were Flying Tables (*Tables Volantes*, which vanish through the floor, to come back reloaded). and a *Parc-aux-cerfs*.
+## Louis's Relationship with Death
 
-Whereby at least we have again this historical curiosity: a human being in an original position; swimming passively, as on some boundless “Mother of Dead Dogs,” towards issues which he partly saw. For Louis had withal a kind of insight in him. So, when a new Minister of Marine, or what else it might be, came announcing his new era, the Scarlet-woman would hear from the lips of Majesty at supper: ‘Yes, he spread out his ware like another; promised the beautifulest things in the world; not a thing of which will come: he does not know this region; he will see.’ Or again: ‘’Tis the twentieth time I hear all that; France will never get a Navy, I believe.’ How touching also was this: ‘If *I* were Lieutenant of Police, I would prohibit those Paris cabriolets.’[^17]
+Fun fact: Louis XV was TERRIFIED of death his whole life. He banned the topic from conversation. He avoided cemeteries and anything funeral-related. Classic ostrich move—stick your head in the sand and pretend the problem doesn't exist.
 
-Doomed mortal;—for is it not a doom to be Solecism incarnate! A new *Roi Fainéant*, King Donothing; but with the strangest new *Mayor of the Palace:* no bow-legged Pepin now for *Mayor*, but that same cloud-capt, fire-breathing Spectre of DEMOCRACY; incalculable, which is enveloping the world!—Was Louis no wickeder than this or the other private Donothing and Eatall; such as we often enough see, under the name of Man, and even Man of Pleasure, cumbering God’s diligent Creation, for a time? Say, wretcheder! His Life-solecism was seen and felt of a whole scandalised world; him endless Oblivion cannot engulf, and swallow to endless depths,—not yet for a generation or two.
+But sometimes he'd have weird spasms the OTHER direction. Once, while out riding in full hunting gear, he encountered a peasant carrying a coffin. 
 
-However, be this as it will, we remark, not without interest, that “on the evening of the 4th,” Dame Dubarry issues from the sick-room, with perceptible “trouble in her visage.” It is the fourth evening of May, year of Grace 1774. Such a whispering in the Œil-de-Bœuf! Is he dying then? What can be said is, that Dubarry seems making up her packages; she sails weeping through her gilt boudoirs, as if taking leave. D’Aiguilon and Company are near their last card; nevertheless they will not yet throw up the game. But as for the sacramental controversy, it is as good as settled without being mentioned; Louis can send for his Abbé Moudon in the course of next night, be confessed by him, some say for the space of “seventeen minutes,” and demand the sacraments of his own accord.
+"Who's that for?" Louis asked.
 
-Nay, already, in the afternoon, behold is not this your Sorceress Dubarry with the handkerchief at her eyes, mounting D’Aiguillon’s chariot; rolling off in his Duchess’s consolatory arms? She is gone; and her place knows her no more. Vanish, false Sorceress; into Space! Needless to hover at neighbouring Ruel; for thy day is done. Shut are the royal palace-gates for evermore; hardly in coming years shalt thou, under cloud of night, descend once, in black domino, like a black night-bird, and disturb the fair Antoinette’s music-party in the Park: all Birds of Paradise flying from thee, and musical windpipes growing mute.[^18] Thou unclean, yet unmalignant, not unpitiable thing! What a course was thine: from that first trucklebed (in Joan of Arc’s country) where thy mother bore thee, with tears, to an unnamed father: forward, through lowest subterranean depths, and over highest sunlit heights, of Harlotdom and Rascaldom—to the guillotine-axe, which shears away thy vainly whimpering head! Rest there uncursed; only buried and abolished: what else befitted thee?
+For another peasant who worked nearby, Your Majesty.
 
-Louis, meanwhile, is in considerable impatience for his sacraments; sends more than once to the window, to see whether they are not coming. Be of comfort, Louis, what comfort thou canst: they are under way, those sacraments. Towards six in the morning, they arrive. Cardinal Grand-Almoner Roche-Aymon is here, in pontificals, with his pyxes and his tools; he approaches the royal pillow; elevates his wafer; mutters or seems to mutter somewhat;—and so (as the Abbé Georgel, in words that stick to one, expresses it) has Louis “made the *amende honorable* to God;” so does your Jesuit construe it.—‘*Wa, Wa*,’ as the wild Clotaire groaned out, when life was departing, ‘what great God is this that pulls down the strength of the strongest kings!’[^19]
+"What did he die of?"
 
-The *amende honorable*, what “legal apology” you will, to God:—but not, if D’Aiguillon can help it, to man. Dubarry still hovers in his mansion at Ruel; and while there is life, there is hope. Grand-Almoner Roche-Aymon, accordingly (for he seems to be in the secret), has no sooner seen his pyxes and gear repacked, then he is stepping majestically forth again, as if the work were done! But King’s Confessor Abbé Moudon starts forward; with anxious acidulent face, twitches him by the sleeve; whispers in his ear. Whereupon the poor Cardinal must turn round; and declare audibly; ‘That his Majesty repents of any subjects of scandal he may have given (*a pu donner*); and purposes, by the strength of Heaven assisting him, to avoid the like—for the future!’ Words listened to by Richelieu with mastiff-face, growing blacker; answered to, aloud, “with an epithet,”—which Besenval will not repeat. Old Richelieu, conqueror of Minorca, companion of Flying-Table orgies, perforator of bedroom walls,[^20] is thy day also done?
+**"Hunger."**
 
-Alas, the Chapel organs may keep going; the Shrine of Sainte Genevieve be let down, and pulled up again,—without effect. In the evening the whole Court, with Dauphin and Dauphiness, assist at the Chapel: priests are hoarse with chanting their “Prayers of Forty Hours;” and the heaving bellows blow. Almost frightful! For the very heaven blackens; battering rain-torrents dash, with thunder; almost drowning the organ’s voice: and electric fire-flashes make the very flambeaux on the altar pale. So that the most, as we are told, retired, when it was over, with hurried steps, “in a state of meditation (*recueillement*),” and said little or nothing.[^21]
+Louis spurred his horse and galloped away.
 
-So it has lasted for the better half of a fortnight; the Dubarry gone almost a week. Besenval says, all the world was getting impatient *que cela finît;* that poor Louis would have done with it. It is now the 10th of May 1774. He will soon have done now.
+That little anecdote tells you everything you need to know.
 
-This tenth May day falls into the loathsome sick-bed; but dull, unnoticed there: for they that look out of the windows are quite darkened; the cistern-wheel moves discordant on its axis; Life, like a spent steed, is panting towards the goal. In their remote apartments, Dauphin and Dauphiness stand road-ready; all grooms and equerries booted and spurred: waiting for some signal to escape the house of pestilence.[^22] And, hark! across the Œil-de-Bœuf, what sound is that; sound “terrible and absolutely like thunder”? It is the rush of the whole Court, rushing as in wager, to salute the new Sovereigns: Hail to your Majesties! The Dauphin and Dauphiness are King and Queen! Over-powered with many emotions, they two fall on their knees together, and, with streaming tears, exclaim, ‘O God, guide us, protect us; we are too young to reign!’—Too young indeed.
+## The Deathbed
 
-Thus, in any case, “with a sound absolutely like thunder,” has the Horologe of Time struck, and an old Era passed away. The Louis that was, lies forsaken, a mass of abhorred clay; abandoned “to some poor persons, and priests of the *Chapelle Ardente*,”—who make haste to put him “in two lead coffins, pouring in abundant spirits of wine.” The new Louis with his Court is rolling towards Choisy, through the summer afternoon: the royal tears still flow; but a word mispronounced by Monseigneur d’Artois sets them all laughing, and they weep no more. Light mortals, how ye walk your light life-minuet, over bottomless abysses, divided from you by a film!
+Now Death has come for Louis himself. No palace walls, no elaborate ceremonies, no life guards can keep it out. 
 
-For the rest, the proper authorities felt that no Funeral could be too unceremonious. Besenval himself thinks it was unceremonious enough. Two carriages containing two noblemen of the usher species, and a Versailles clerical person; some score of mounted pages, some fifty palfreniers; these, with torches, but not so much as in black, start from Versailles on the second evening with their leaden bier. At a high trot they start; and keep up that pace. For the jibes (*brocards*) of those Parisians, who stand planted in two rows, all the way to St. Denis, and “give vent to their pleasantry, the characteristic of the nation,” do not tempt one to slacken. Towards midnight the vaults of St. Denis receive their own; unwept by any eye of all these; if not by poor *Loque* his neglected Daughter’s, whose Nunnery is hard by.
+Think about what's going through his mind: his whole life was essentially a theatrical performance—costumes, rituals, elaborate displays of power. But death is REAL. Versailles, with all its gilt and mirrors, suddenly seems like what it always was: an expensive illusion about to pop like a soap bubble.
 
-Him they crush down, and huddle under-ground, in this impatient way; him and his era of sin and tyranny and shame; for behold a New Era is come; the future all the brighter that the past was base.
+Where are the five hundred thousand ghosts now? What about the curses of all those mothers? The tears of all those daughters? 
 
-[^15]: Besenval, i. 199.
-[^16]: Campan, iii. 39.
-[^17]: Journal de Madame de Hausset , p. 293, &c.
-[^18]: Campan, i. 197.
-[^19]: Gregorius Turonensis, Histor. lib. iv. cap. 21.
-[^20]: Besenval, i. 159-172. Genlis; Duc de Levis, &c.
-[^21]: Weber, Mémoires concernant Marie-Antoinette (London, 1809), i. 22.
-[^22]: One grudges to interfere with the beautiful theatrical “candle,” which Madame
+Look, I'm not going to moralize too much here. But let's just say: if there IS a judgment, Louis is going to need a very good lawyer.
+
+## A Word for the Common Man
+
+And yet—before we get too smug—aren't we all, in our own small ways, responsible for our own domains? Louis ruled France badly. How do you rule your little corner of the world?
+
+The difference is one of scale, not kind. Louis's sins were visible because he was visible. Most of us commit smaller versions of the same failures, day after day, in blessed obscurity.
+
+Just something to think about.
+
+## The Practical Problem
+
+From a practical standpoint, Louis's situation in 1744 (when he recovered from that Metz illness) posed an impossible question: what was he actually supposed to DO?
+
+He inherited an incoherent mess—a country full of contradictions, with a nobility that was useless, a clergy that was corrupt, a peasantry that was starving, and a bureaucracy that was incompetent. "Blind Fortune" had dropped him on top of this disaster. He could no more control France's trajectory than a log can steer the Atlantic current.
+
+"What have I done to be so loved?" he asked in 1744, baffled by the public's affection.
+
+Now he might ask: "What have I done to be so hated?"
+
+The answer, unfortunately, is NOTHING. That's exactly the problem. He did nothing when doing something might have helped. He was a Do-Nothing King (*Roi Fainéant*) at exactly the moment history needed leadership.
+
+## The Final Days
+
+On the evening of May 4th, 1774, Madame du Barry emerges from the sickroom with visible distress on her face. The whispers in the antechamber reach fever pitch: Is he dying? Is this it?
+
+The sacrament debate is essentially over. Louis himself, in a rare moment of initiative, sends for his confessor during the night and makes his confession. Some say it took seventeen minutes. (What sins can you cover in seventeen minutes? With Louis's track record, he must have been summarizing.)
+
+The next afternoon, du Barry climbs into D'Aiguillon's carriage, weeping, and is driven away to stay with the Duchess. Her time at Versailles is over. The palace gates close behind her. She'll eventually try to sneak back once—years later, in disguise, to attend a music party—but she'll be spotted and chased off.
+
+Her ultimate fate? The guillotine, in 1793, during the Terror. She went crying and begging to the end. Whatever else you can say about her, she never did learn to be brave.
+
+## The Sacraments Arrive
+
+Around 6 AM, the sacraments finally arrive. Cardinal Roche-Aymon sweeps in with all his ceremonial gear, elevates the sacred bread, mutters some words... and starts to leave, as if the job is done.
+
+But wait! The King's confessor, Abbé Moudon, tugs at the Cardinal's sleeve. There's supposed to be a PUBLIC declaration of repentance! The whole point is that Louis acknowledges his sins!
+
+The Cardinal, caught, has to turn around and announce to the room: "His Majesty repents of any scandal he may have caused, and intends, with God's help, to avoid such conduct in the future."
+
+Old Marshal Richelieu, standing nearby, responds with an audible curse.
+
+It's done. The show of piety has been performed. The chapel organs continue playing. The Shrine of Saint Geneviève is paraded around. Nothing helps.
+
+## The End
+
+On May 10th, 1774, Louis XV dies. His body, already decaying from smallpox, is quickly bundled into two lead coffins with lots of spirits of wine to mask the smell.
+
+In nearby rooms, the Dauphin and Dauphiness wait with their carriages ready, eager to escape this "house of pestilence." 
+
+And then—a sound "absolutely like thunder." 
+
+It's the entire court RUNNING to salute the new sovereigns.
+
+Louis XVI and Marie Antoinette fall to their knees together, weeping: "Oh God, guide us, protect us! We are too young to reign!"
+
+They were 19 and 18 years old respectively. They had no idea what they were doing. And they were right to be scared.
+
+## The Funeral
+
+The authorities decided that no funeral could be too cheap or too quick for Louis XV. Two carriages, a few noblemen, some pages with torches—no mourning clothes even—trotted his corpse to Saint-Denis at top speed.
+
+Why the rush? Because Parisians lined the route to jeer and crack jokes at the passing coffin. The "characteristic of the nation," as one witness noted, was on full display.
+
+They buried him fast and moved on. A new era had begun.
+
+Whether it would be any better... well, that's the rest of this book.

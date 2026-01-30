@@ -1,12 +1,67 @@
-# Petition in Hieroglyphs
+# Petition in Hieroglyphs: When the Poor Show Up
 
-With the working people, again it is not so well. Unlucky! For there are twenty to twenty-five millions of them. Whom, however, we lump together into a kind of dim compendious unity, monstrous but dim, far off, as the *canaille;* or, more humanely, as “the masses.” Masses, indeed: and yet, singular to say, if, with an effort of imagination, thou follow them, over broad France, into their clay hovels, into their garrets and hutches, the masses consist all of units. Every unit of whom has his own heart and sorrows; stands covered there with his own skin, and if you prick him he will bleed. O purple Sovereignty, Holiness, Reverence; thou, for example, Cardinal Grand-Almoner, with thy plush covering of honour, who hast thy hands strengthened with dignities and moneys, and art set on thy world watch-tower solemnly, in sight of God, for such ends,—what a thought: that every unit of these masses is a miraculous Man, even as thyself art; struggling, with vision, or with blindness, for *his* infinite Kingdom (this life which he has got, once only, in the middle of Eternities); with a spark of the Divinity, what thou callest an immortal soul, in him!
+So everyone's having a great time in the salons, philosophizing about the perfectibility of man. But there's one small thing they keep forgetting:
 
-Dreary, languid do these struggle in their obscure remoteness; their hearth cheerless, their diet thin. For them, in this world, rises no Era of Hope; hardly now in the other,—if it be not hope in the gloomy rest of Death, for their faith too is failing. Untaught, uncomforted, unfed! A dumb generation; their voice only an inarticulate cry: spokesman, in the King’s Council, in the world’s forum, they have none that finds credence. At rare intervals (as now, in 1775), they will fling down their hoes and hammers; and, to the astonishment of thinking mankind,[^29] flock hither and thither, dangerous, aimless; get the length even of Versailles. Turgot is altering the Corn-trade, abrogating the absurdest Corn-laws; there is dearth, real, or were it even “factitious;” an indubitable scarcity of bread. And so, on the second day of May 1775, these waste multitudes do here, at Versailles Château, in wide-spread wretchedness, in sallow faces, squalor, winged raggedness, present, as in legible hieroglyphic writing, their Petition of Grievances. The Château gates have to be shut; but the King will appear on the balcony, and speak to them. They have seen the King’s face; their Petition of Grievances has been, if not read, looked at. For answer, two of them are hanged, on a “new gallows forty feet high;” and the rest driven back to their dens,—for a time.
+**TWENTY-FIVE MILLION POOR PEOPLE.**
 
-Clearly a difficult “point” for Government, that of dealing with these masses;—if indeed it be not rather the sole point and problem of Government, and all other points mere accidental crotchets, superficialities, and beatings of the wind! For let Charter-Chests, Use and Wont, Law common and special say what they will, the masses count to so many millions of units; made, to all appearance, by God,—whose Earth this is declared to be. Besides, the people are not without ferocity; they have sinews and indignation. Do but look what holiday old Marquis Mirabeau, the crabbed old friend of Men, looked on, in these same years, from his lodging, at the Baths of Mont d’Or: “The savages descending in torrents from the mountains; our people ordered not to go out. The Curate in surplice and stole; Justice in its peruke; Marechausee sabre in hand, guarding the place, till the bagpipes can begin. The dance interrupted, in a quarter of an hour, by battle; the cries, the squealings of children, of infirm persons, and other assistants, tarring them on, as the rabble does when dogs fight: frightful men, or rather frightful wild animals, clad in jupes of coarse woollen, with large girdles of leather studded with copper nails; of gigantic stature, heightened by high wooden-clogs (*sabots*); rising on tiptoe to see the fight; tramping time to it; rubbing their sides with their elbows: their faces haggard (*figures hâves*), and covered with their long greasy hair; the upper part of the visage waxing pale, the lower distorting itself into the attempt at a cruel laugh and a sort of ferocious impatience. And these people pay the *taille!* And you want further to take their salt from them! And you know not what it is you are stripping barer, or as you call it, governing; what by the spurt of your pen, in its cold dastard indifference, you will fancy you can starve always with impunity; always till the catastrophe come!—Ah Madame, such Government by Blindman’s-buff, stumbling along too far, will end in the General Overturn (*culbute générale*).”[^30]
+## The Invisible Masses
 
-Undoubtedly a dark feature this in an Age of Gold,—Age, at least, of Paper and Hope! Meanwhile, trouble us not with thy prophecies, O croaking Friend of Men: ’tis long that we have heard such; and still the old world keeps wagging, in its old way.
+The aristocrats call them "the masses" or "the rabble" (*canaille*). It's convenient to lump them into one abstract blob—easier to ignore that way.
 
-[^29]: Lacretelle, France pendant le 18me Siècle , ii. 455. Biographie
-[^30]: Mémoires de Mirabeau , écrits par Lui-même, par son Père, son Oncle et
+But here's the thing: "the masses" are made up of *individuals*. Every single one of them has a life, has sorrows, has hopes (or used to). Every one of them has skin that bleeds when cut. Every one of them, if you believe in such things, has a soul.
+
+And they're HUNGRY.
+
+These are the peasants in their dirt-floor hovels. The workers in their garrets. The beggars in the streets. They have no voice in government, no representative at court, no one who speaks for them.
+
+Their faith is dying—because what's the point of believing in a better afterlife when your CURRENT life is pure misery?
+
+## May 1775: The Flour War
+
+Turgot, our enlightened new Finance Minister, is trying to reform the grain trade. He's abolishing the absurd old laws that made bread unnecessarily expensive. Good idea in theory!
+
+But here's the problem: in the transition, bread got EVEN MORE expensive. Whether from genuine scarcity or artificial manipulation (there were rumors of hoarding), people started starving.
+
+And so, on May 2nd, 1775, the poor showed up at Versailles.
+
+Not in writing—they couldn't write. They showed up IN PERSON. Thousands of them. Ragged, gaunt, sunburned faces twisted with desperation. They came carrying their children. They came crying out for bread.
+
+It was, as we might say, a petition written in hieroglyphics—in the visible language of human suffering.
+
+The palace gates slammed shut. The King appeared on a balcony to acknowledge them. They saw his face. He saw theirs.
+
+And then?
+
+**Two of them were hanged on a new gallows forty feet high. The rest were driven back to their hovels.**
+
+That was the government's response to the Petition of Grievances. Thanks for coming! Here's some corpses!
+
+## The REAL Problem of Government
+
+This is actually THE fundamental problem of any government: What do you do about the poor?
+
+All the constitutional debates, all the philosophical treatises, all the elegant salon conversations—they're nice and all. But the peasants number in the tens of millions, they were supposedly created by the same God who made kings, they work the land that grows the food, and they have arms that can swing scythes and pitchforks.
+
+Figure out how to make them not starving and not furious, and you've solved the only political problem that actually matters. Fail at it, and none of your other accomplishments mean anything.
+
+## A Glimpse of the Future
+
+The Marquis de Mirabeau (father of the famous revolutionary Mirabeau) was at a spa town in the mountains when he witnessed what we might call "peasant entertainment."
+
+Picture this: Highland peasants flooding down from the mountains for a festival. So many that the authorities told regular guests not to go outside. Armed marshals guarding the square. The local priest in full vestments, trying to maintain order. A band playing bagpipes.
+
+Then the dancing started. And then the FIGHTING started.
+
+Mirabeau watched as these "frightful wild animals"—his words—went at each other. Men built like giants in wooden clogs, faces gaunt and covered with greasy long hair, laughing with what he called "ferocious impatience." Mothers cheered them on like spectators at a dogfight.
+
+And then Mirabeau had a thought that would prove prophetic:
+
+> "These people pay the *taille* [the crushing peasant tax]! And you want to take their salt from them too! And you think you can just keep starving them with the flick of your bureaucratic pen, with impunity, forever? This Government-by-Blindman's-Buff is going to end in the GENERAL OVERTURN."
+
+*Culbute générale.* 
+
+Remember that phrase. It's going to be the title of a lot of chapters coming up.
+
+But for now, the salons kept buzzing, the philosophes kept philosophizing, and everyone kept hoping that surely, SURELY, the good times would continue.
+
+After all, the sun was shining. The harvests were coming in. What could possibly go wrong?

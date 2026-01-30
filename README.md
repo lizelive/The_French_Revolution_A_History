@@ -206,4 +206,45 @@
 
 <!-- TOC END -->
 
-The French Revolution: A History was written by the Scottish essayist, historian and philosopher Thomas Carlyle. The three-volume work, first published in 1837 (with a revised edition in print by 1857), charts the course of the French Revolution from 1789 to the height of the Reign of Terror (1793–94) and culminates in 1795.
+---
+
+## About This Edition
+
+**Welcome to the most UNHINGED retelling of the French Revolution you'll ever read!**
+
+Originally written by Thomas Carlyle in 1837, this classic work has been completely modernized for 21st-century readers. We've taken Carlyle's Victorian prose—all those "thees" and "thous" and sentences that go on for paragraphs—and transformed it into something you might actually want to read.
+
+### What's Different?
+
+✨ **Modern language** - No more wading through 19th-century verbosity  
+🎯 **Historical accuracy** - We've fact-checked and clarified where needed  
+😂 **Actually fun to read** - Because history shouldn't be boring  
+💥 **Loud and dramatic** - The Revolution was wild, so we're telling it wild  
+
+### What You'll Learn
+
+This is the story of how France went from absolute monarchy to revolutionary chaos in just a few years:
+
+**Volume 1: The Bastille** - The buildup and explosion. A dying king, a bankrupt treasury, an angry people, and the fall of the most infamous prison in history.
+
+**Volume 2: The Constitution** - The attempt to build a new France. Spoiler: it doesn't go smoothly.
+
+**Volume 3: The Guillotine** - When the revolution ate its own children. The Terror, the executions, and the eventual collapse.
+
+### How to Read This
+
+You can read straight through (it's actually readable now!) or jump to the exciting bits:
+
+- **Want blood and drama?** Start with [Storm and Victory](01_the_bastille/05_the_third_estate/06_storm_and_victory.md) - the fall of the Bastille
+- **Want political intrigue?** Try [The Notables](01_the_bastille/03_the_parlement_of_paris/03_the_notables.md) - when the rich get asked to tax themselves
+- **Want the ending?** Jump to Volume 3 for the guillotine years
+
+### Original Work
+
+This book was originally written by the Scottish essayist, historian and philosopher Thomas Carlyle. The three-volume work was first published in 1837 and charts the course of the French Revolution from 1789 to 1795.
+
+Carlyle's original work was a masterpiece of Victorian prose, but let's be honest—Victorian prose is DENSE. We've preserved the historical content while making it accessible to modern readers.
+
+---
+
+*"Is it a revolt?" "No, Sire. It is a revolution."*

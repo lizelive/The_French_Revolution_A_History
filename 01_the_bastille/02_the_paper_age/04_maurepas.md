@@ -1,17 +1,74 @@
-# Maurepas
+# Maurepas: The Art of Doing Nothing
 
-But now, among French hopes, is not that of old M. de Maurepas one of the best-grounded; who hopes that he, by dexterity, shall contrive to continue Minister? Nimble old man, who for all emergencies has his light jest; and ever in the worst confusion will emerge, cork-like, unsunk! Small care to him is Perfectibility, Progress of the Species, and *Astræa Redux:* good only, that a man of light wit, verging towards fourscore, can in the seat of authority feel himself important among men. Shall we call him, as haughty Châteauroux was wont of old, “*M. Faquinet* (Diminutive of Scoundrel)”? In courtier dialect, he is now named “the Nestor of France;” such governing Nestor as France has.
+Let's talk about France's actual leadership situation: the Prime Minister is an 80-year-old guy whose main talent is cracking jokes and surviving.
 
-At bottom, nevertheless, it might puzzle one to say where the Government of France, in these days, specially is. In that Château of Versailles, we have Nestor, King, Queen, ministers and clerks, with paper-bundles tied in tape: but the Government? For Government is a thing that *governs*, that guides; and if need be, compels. Visible in France there is not such a thing. Invisible, inorganic, on the other hand, there is: in Philosophe saloons, in Œil-de-Bœuf galleries; in the tongue of the babbler, in the pen of the pamphleteer. Her Majesty appearing at the Opera is applauded; she returns all radiant with joy. Anon the applauses wax fainter, or threaten to cease; she is heavy of heart, the light of her face has fled. Is Sovereignty some poor Montgolfier; which, blown into by the popular wind, grows great and mounts; or sinks flaccid, if the wind be withdrawn? France was long a “Despotism tempered by Epigrams;” and now, it would seem, the Epigrams have get the upper hand.
+## Meet M. de Maurepas
 
-Happy were a young “Louis the Desired” to make France happy; if it did not prove too troublesome, and he only knew the way. But there is endless discrepancy round him; so many claims and clamours; a mere confusion of tongues. Not reconcilable by man; not manageable, suppressible, save by some strongest and wisest men;—which only a lightly-jesting lightly-gyrating M. de Maurepas can so much as subsist amidst. Philosophism claims her new Era, meaning thereby innumerable things. And claims it in no faint voice; for France at large, hitherto mute, is now beginning to speak also; and speaks in that same sense. A huge, many-toned sound; distant, yet not unimpressive. On the other hand, the Œil-de-Bœuf, which, as nearest, one can hear best, claims with shrill vehemence that the Monarchy be as heretofore a Horn of Plenty; wherefrom loyal courtiers may draw,—to the just support of the throne. Let Liberalism and a New Era, if such is the wish, be introduced; only no curtailment of the royal moneys? Which latter condition, alas, is precisely the impossible one.
+The Comte de Maurepas doesn't care about Progress, the perfectibility of humanity, or making France great again. He cares about ONE thing: staying in power for as long as possible.
 
-Philosophism, as we saw, has got her Turgot made Controller-General; and there shall be endless reformation. Unhappily this Turgot could continue only twenty months. With a miraculous *Fortunatus’ Purse* in his Treasury, it might have lasted longer; with such Purse indeed, every French Controller-General, that would prosper in these days, ought first to provide himself. But here again may we not remark the bounty of Nature in regard to Hope? Man after man advances confident to the Augean Stable, as if *he* could clean it; expends his little fraction of an ability on it, with such cheerfulness; does, in so far as he was honest, accomplish something. Turgot has faculties; honesty, insight, heroic volition; but the Fortunatus’ Purse he has not. Sanguine Controller-General! a whole pacific French Revolution may stand schemed in the head of the thinker; but who shall pay the unspeakable “indemnities” that will be needed? Alas, far from that: on the very threshold of the business, he proposes that the Clergy, the Noblesse, the very Parlements be subjected to taxes! One shriek of indignation and astonishment reverberates through all the Château galleries; M. de Maurepas has to gyrate: the poor King, who had written few weeks ago, “*Il n’y a que vous et moi qui aimions le peuple* (There is none but you and I that has the people’s interest at heart),” must write now a dismissal;[^32] and let the French Revolution accomplish itself, pacifically or not, as it can.
+His strategy? Don't commit to anything. Float like a cork on the waves. When problems come up, make a witty remark and wait for them to solve themselves. When different factions clash, bob between them. Never, ever take a real stand.
 
-Hope, then, is deferred? Deferred; not destroyed, or abated. Is not this, for example, our Patriarch Voltaire, after long years of absence, revisiting Paris? With face shrivelled to nothing; with “huge peruke *à la Louis Quatorze*, which leaves only two eyes ‘visible’ glittering like carbuncles,” the old man is here.[^33] What an outburst! Sneering Paris has suddenly grown reverent; devotional with Hero-worship. Nobles have disguised themselves as tavern-waiters to obtain sight of him: the loveliest of France would lay their hair beneath his feet. “His chariot is the nucleus of a comet; whose train fills whole streets:” they crown him in the theatre, with immortal vivats; “finally stifle him under roses,”—for old Richelieu recommended opium in such state of the nerves, and the excessive Patriarch took too much. Her Majesty herself had some thought of sending for him; but was dissuaded. Let Majesty consider it, nevertheless. The purport of this man’s existence has been to wither up and annihilate all whereon Majesty and Worship for the present rests: and is it *so* that the world recognises him? With Apotheosis; as its Prophet and Speaker, who has spoken wisely the thing it longed to say? Add only, that the body of this same rose-stifled, beatified-Patriarch cannot get buried except by stealth. It is wholly a notable business; and France, without doubt, is *big* (what the Germans call “Of good Hope”): we shall wish her a happy birth-hour, and blessed fruit.
+The previous king's mistress once called him "M. Faquinet" (roughly translated: "Little Weasel"). Now people call him "the Nestor of France"—supposedly the wise elder statesman. Same guy, different marketing.
 
-Beaumarchais too has now winded-up his Law-Pleadings (*Mémoires*);[^34] not without result, to himself and to the world. Caron Beaumarchais (or de Beaumarchais, for he got ennobled) had been born poor, but aspiring, esurient; with talents, audacity, adroitness; above all, with the talent for intrigue: a lean, but also a tough, indomitable man. Fortune and dexterity brought him to the harpsichord of Mesdames, our good Princesses *Loque, Graille* and Sisterhood. Still better, Paris Duvernier, the Court-Banker, honoured him with some confidence; to the length even of transactions in cash. Which confidence, however, Duvernier’s Heir, a person of quality, would not continue. Quite otherwise; there springs a Lawsuit from it: wherein tough Beaumarchais, losing both money and repute, is, in the opinion of Judge-Reporter Goezman, of the Parlement Maupeou, of a whole indifferent acquiescing world, miserably beaten. In all men’s opinions, only not in his own! Inspired by the indignation, which makes, if not verses, satirical law-papers, the withered Music-master, with a desperate heroism, takes up his lost cause in spite of the world; fights for it, against Reporters, Parlements and Principalities, with light banter, with clear logic; adroitly, with an inexhaustible toughness and resource, like the skilfullest fencer; on whom, so skilful is he, the whole world now looks. Three long years it lasts; with wavering fortune. In fine, after labours comparable to the Twelve of Hercules, our unconquerable Caron triumphs; regains his Lawsuit and Lawsuits; strips Reporter Goezman of the judicial ermine; covering him with a perpetual garment of obloquy instead:—and in regard to the Parlement Maupeou (which he has helped to extinguish), to Parlements of all kinds, and to French Justice generally, gives rise to endless reflections in the minds of men. Thus has Beaumarchais, like a lean French Hercules, ventured down, driven by destiny, into the Nether Kingdoms; and victoriously tamed hell-dogs there. He also is henceforth among the notabilities of his generation.
+## Who Actually Runs France?
 
-[^32]: In May, 1776.
-[^33]: February, 1778.
-[^34]: 1773-6. See Œuvres de Beaumarchais; where they, and the history of them, are given.
+Here's a question: Where IS the government of France right now?
+
+You'd think it would be at Versailles, in the palace, with the King and his ministers. But the government is supposed to GOVERN—to actually make decisions and enforce them.
+
+What's actually happening at Versailles? Louis XVI is in his workshop making locks. Marie Antoinette is attending operas and checking whether the audience applauds her (good day) or doesn't applaud her (bad day). And Maurepas is making jokes.
+
+Meanwhile, the REAL power is with:
+- The philosophical salons, where public opinion gets shaped
+- The pamphleteers, who can make or break reputations
+- The crowds at the Opera who can cheer or boo
+
+France, someone once said, was "a despotism tempered by epigrams." Now the epigrams have taken over.
+
+## The Turgot Experiment
+
+Remember Turgot, the Enlightenment philosopher who became Finance Minister? He had a whole reform plan ready to go. He was going to rationalize the economy, free up trade, and get France's finances in order.
+
+Just one small problem: Someone has to PAY for reforms. And the only people with any money were the aristocrats, the clergy, and the judges. Turgot proposed—radical idea!—that THEY should pay taxes too, instead of only the peasants.
+
+The resulting shriek of outrage echoed through every corridor of Versailles.
+
+The king who had written "There is no one but you and I who truly cares about the people" ended up writing Turgot a dismissal letter. Reform would have to wait.
+
+The revolution would just have to happen the non-peaceful way, then.
+
+## Voltaire's Last Bow
+
+One bright spot: In 1778, the grand old man of French philosophy finally returned to Paris.
+
+Voltaire was 83 years old, his face "shrivelled to nothing," wearing an enormous outdated wig that left only two glittering eyes visible. He hadn't been to Paris in decades—various kings had been too afraid of his sharp pen to let him stay.
+
+But now? The city went INSANE.
+
+Nobles disguised themselves as tavern waiters just to get a glimpse of him. Beautiful women threw themselves at his feet. His carriage through the streets became "the nucleus of a comet" with crowds trailing behind. They crowned him at the theatre. They showered him with roses until he literally suffocated from the attention (okay, he also took too much opium on a doctor's recommendation, but still).
+
+Here was the man whose entire career had been dedicated to undermining the Church and the monarchy. And Paris celebrated him like a returning god.
+
+Marie Antoinette considered having him summoned to court, but decided against it. Probably wise—what would they even talk about?
+
+Voltaire died shortly after his triumphant return. They had trouble getting him buried (the Church still hated him), so they had to sneak his body out of the city at night.
+
+And yet, his ideas lived on. France was "pregnant with revolution," as the Germans say. The birth would be messy.
+
+## Beaumarchais: The Fighter
+
+One more character worth introducing: Beaumarchais.
+
+This guy started out as a watch-maker's son, clawed his way up to teach harpsichord to the princesses, got into some shady financial dealings, and then got royally screwed by the courts when a business partner's heir refused to honor their agreements.
+
+A lesser man would have accepted defeat. Beaumarchais spent THREE YEARS fighting back, writing savage legal briefs that were also literary masterpieces, exposing the corruption of the judges, and turning public opinion to his side through sheer brilliance and stubbornness.
+
+In the end, he won his case, destroyed the reputation of the corrupt judge who'd ruled against him, and helped bring down the whole illegitimate judicial system that Louis XV had set up.
+
+He'd later write *The Marriage of Figaro*—a play so subversive that Louis XVI tried to ban it, then caved to public pressure. It's basically a manual for how to overthrow your social betters through wit.
+
+Beaumarchais showed France that you COULD fight the system. That little people with nothing but cleverness and determination COULD win against entrenched power.
+
+This was... probably not the lesson the monarchy wanted people to learn.
+
+But learned it they did.

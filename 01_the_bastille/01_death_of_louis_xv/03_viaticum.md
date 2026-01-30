@@ -1,16 +1,66 @@
-# Viaticum
+# Viaticum (Or: The Last Rites Drama)
 
-For the present, however, the grand question with the Governors of France is: Shall extreme unction, or other ghostly viaticum (to Louis, not to France), be administered?
+So Louis XV is dying of smallpox. You'd think the big question would be medical—like, "Will he survive?" But nope! This is Versailles, baby. The REAL question consuming everyone's minds is: **Should we give him his last rites?**
 
-It is a deep question. For, if administered, if so much as spoken of, must not, on the very threshold of the business, Witch Dubarry vanish; hardly to return should Louis even recover? With her vanishes Duke d’Aiguillon and Company, and all their Armida-Palace, as was said; Chaos swallows the whole again, and there is left nothing but a smell of brimstone. But then, on the other hand, what will the Dauphinists and Choiseulists say? Nay what may the royal martyr himself say, should he happen to get deadly worse, without getting delirious? For the present, he still kisses the Dubarry hand; so we, from the ante-room, can note: but afterwards? Doctors’ bulletins may run as they are ordered, but it is “confluent small-pox,”—of which, as is whispered too, the Gatekeeper’s once so buxom Daughter lies ill: and Louis XV. is not a man to be trifled with in his viaticum. Was he not wont to catechise his very girls in the *Parc-aux-cerfs*, and pray with and for them, that they might preserve their—orthodoxy?[^13] A strange fact, not an unexampled one; for there is no animal so strange as man.
+Why is this complicated? Buckle up, because this is peak 18th-century court intrigue.
 
-For the moment, indeed, it were all well, could Archbishop Beaumont but be prevailed upon—to wink with one eye! Alas, Beaumont would himself so fain do it: for, singular to tell, the Church too, and whole posthumous hope of Jesuitism, now hangs by the apron of this same unmentionable woman. But then “the force of public opinion”? Rigorous Christophe de Beaumont, who has spent his life in persecuting hysterical Jansenists and incredulous Non-confessors; or even their dead bodies, if no better might be,—how shall he now open Heaven’s gate, and give Absolution with the *corpus delicti* still under his nose? Our Grand-Almoner Roche-Aymon, for his part, will not higgle with a royal sinner about turning of the key: but there are other Churchmen; there is a King’s Confessor, foolish Abbé Moudon; and Fanaticism and Decency are not yet extinct. On the whole, what is to be done? The doors can be well watched; the Medical Bulletin adjusted; and much, as usual, be hoped for from time and chance.
+## The Problem
 
-The doors are well watched, no improper figure can enter. Indeed, few wish to enter; for the putrid infection reaches even to the *Œil-de-Bœuf;* so that “more than fifty fall sick, and ten die.” Mesdames the Princesses alone wait at the loathsome sick-bed; impelled by filial piety. The three Princesses, *Graille, Chiffe, Coche* (Rag, Snip, Pig, as he was wont to name them), are assiduous there; when all have fled. The fourth Princess *Loque* (Dud), as we guess, is already in the Nunnery, and can only give her orisons. Poor *Graille* and Sisterhood, they have never known a Father: such is the hard bargain Grandeur must make. Scarcely at the *Débotter* (when Royalty took off its boots) could they snatch up their “enormous hoops, gird the long train round their waists, huddle on their black cloaks of taffeta up to the very chin;” and so, in fit appearance of full dress, “every evening at six,” walk majestically in; receive their royal kiss on the brow; and then walk majestically out again, to embroidery, small-scandal, prayers, and vacancy. If Majesty came some morning, with coffee of its own making, and swallowed it with them hastily while the dogs were uncoupling for the hunt, it was received as a grace of Heaven.[^14] Poor withered ancient women! in the wild tossings that yet await your fragile existence, before it be crushed and broken; as ye fly through hostile countries, over tempestuous seas, are almost taken by the Turks; and wholly, in the Sansculottic Earthquake, know not your right hand from your left, be this always an assured place in your remembrance: for the act was good and loving! To us also it is a little sunny spot, in that dismal howling waste, where we hardly find another.
+Here's the deal: to receive the Catholic sacraments on your deathbed (the "viaticum"), you need to confess your sins and show genuine repentance. And what's Louis XV's biggest ongoing sin?
 
-Meanwhile, what shall an impartial prudent Courtier do? In these delicate circumstances, while not only death or life, but even sacrament or no sacrament, is a question, the skilfulest may falter. Few are so happy as the Duke d’Orléans and the Prince de Condé; who can themselves, with volatile salts, attend the King’s ante-chamber; and, at the same time, send their brave sons (Duke de Chartres, *Egalité* that is to be; Duke de Bourbon, one day Condé too, and famous among Dotards) to wait upon the Dauphin. With another few, it is a resolution taken; *jacta est alea*. Old Richelieu,—when Beaumont, driven by public opinion, is at last for entering the sick-room,—will twitch him by the rochet, into a recess; and there, with his old dissipated mastiff-face, and the oiliest vehemence, be seen pleading (and even, as we judge by Beaumont’s change of colour, prevailing) “that the King be not killed by a proposition in Divinity.” Duke de Fronsac, son of Richelieu, can follow his father: when the Curé of Versailles whimpers something about sacraments, he will threaten to “throw him out of the window if he mention such a thing.”
+Madame du Barry. Still in the palace. Still being... let's say "visited" by His Majesty.
 
-Happy these, we may say; but to the rest that hover between two opinions, is it not trying? He who would understand to what a pass Catholicism, and much else, had now got; and how the symbols of the Holiest have become gambling-dice of the Basest,—must read the narrative of those things by Besenval, and Soulavie, and the other Court Newsmen of the time. He will see the Versailles Galaxy all scattered asunder, grouped into new ever-shifting Constellations. There are nods and sagacious glances; go-betweens, silk dowagers mysteriously gliding, with smiles for this constellation, sighs for that: there is tremor, of hope or desperation, in several hearts. There is the pale grinning Shadow of Death, ceremoniously ushered along by another grinning Shadow, of Etiquette: at intervals the growl of Chapel Organs, like prayer by machinery; proclaiming, as in a kind of horrid diabolic horse-laughter, *Vanity of vanities, all is Vanity!*
+Catholic rules are pretty clear: you can't be absolved of adultery while you're STILL DOING IT. The mistress has to go. But if du Barry goes, so does her entire power network—including D'Aiguillon and Maupeou. They'd rather roll the dice on the King's soul than give up their positions.
 
-[^13]: Dulaure (viii. 217); Besenval, &c.)
-[^14]: Campan, i. 11-36.
+## The Opposing Teams
+
+**Team Keep du Barry Around:**
+- Du Barry herself (obviously)
+- D'Aiguillon (her ally)
+- Maupeou (who enjoys playing party games with her)
+- The Jesuits (weirdly, they've hitched their wagon to the royal mistress because she protects them)
+
+**Team Get Rid of the Mistress:**
+- The Dauphinists (supporters of the heir, the future Louis XVI)
+- The Choiseulists (allies of the minister that du Barry got fired)
+- Anyone with basic Catholic principles
+- Public opinion in general
+
+**Team Stuck in the Middle:**
+- Archbishop Beaumont: He WANTS to look the other way, but he's spent his whole career being a religious hardass. If he gives Louis last rites with du Barry still in the building, he'll be a hypocrite.
+- Cardinal Roche-Aymon, the Grand Almoner: This guy would happily hand over the sacraments no questions asked—he's flexible like that—but other clergy are watching.
+
+## The Palace Drama
+
+The courtiers are having an absolute MELTDOWN trying to figure out which team to support.
+
+The smart ones, like the Duke d'Orléans, are hedging their bets: they personally attend the King's antechamber (showing support for the current regime), but send their sons to pay respects to the Dauphin (showing support for the future regime). Cover all bases!
+
+Old Marshal Richelieu—yes, from THAT Richelieu family—is working overtime to prevent the sacraments. When Archbishop Beaumont finally summons the courage to approach the sickroom, Richelieu literally grabs him by the robes and pulls him aside, urgently whispering that they shouldn't "kill the King with a theological debate." 
+
+His son, the Duke de Fronsac, takes an even more direct approach. When the local priest mentions last rites, Fronsac threatens to throw him out the window.
+
+Family values!
+
+## Meanwhile, the King is Disgusting
+
+Let's not forget that Louis XV is actively rotting in his bed. The smallpox is BAD—"confluent" smallpox, meaning the pustules have merged into one continuous nightmare. The smell is so awful it reaches the outer antechambers. More than fifty courtiers will get sick just from visiting, and ten will die.
+
+The only people who actually stay at his bedside are his daughters—Princesses Adelaide, Victoire, Sophie, and Louise. Louis had nicknamed them, charmingly, "Rag, Snip, Pig, and Dud" (*Graille, Chiffe, Coche, Loque*). Father of the year, this guy.
+
+These poor women barely knew their father. Their interactions consisted of rushing to get dressed up every evening at 6 PM, getting a kiss on the forehead, and being dismissed. Sometimes Louis would make them coffee. That was considered a treat.
+
+And now they're the only ones willing to sit with him as he dies. It's actually kind of touching, in a deeply messed-up way.
+
+## The Waiting Game
+
+The whole palace is frozen in anxious paralysis. Nobody wants to make a move before they know which way this is going. The scene is:
+
+- Courtiers nodding mysteriously at each other
+- Elderly duchesses gliding from room to room, smiling at one faction, sighing at another
+- The machinery of the chapel playing on automatically—organs droning, priests chanting their hourly prayers
+- And underneath it all, the shadow of Death, being ceremonially ushered through etiquette protocols, followed by the shadow of Etiquette itself
+
+The organs play; it sounds like "mocking diabolic laughter," proclaiming: *VANITY OF VANITIES, ALL IS VANITY!*
+
+Welcome to Versailles. The most glamorous, most absurd, most dysfunctional place on Earth.

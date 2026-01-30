@@ -1,40 +1,92 @@
-# The Notables Again
+# The Notables Again: Second Verse, Same as the First
 
-The universal prayer, therefore, is to be fulfilled! Always in days of national perplexity, when wrong abounded and help was not, this remedy of States-General was called for; by a Malesherbes, nay by a Fénelon;[^107] even Parlements calling for it were “escorted with blessings.” And now behold it is vouchsafed us; States-General shall verily be!
+The States-General is happening. That's settled. But HOW it happens? That's where the fighting starts.
 
-To say, let States-General be, was easy; to say in what manner they shall be, is not so easy. Since the year of 1614, there have no States-General met in France, all trace of them has vanished from the living habits of men. Their structure, powers, methods of procedure, which were never in any measure fixed, have now become wholly a vague possibility. Clay which the potter may shape, this way or that:—say rather, the twenty-five millions of potters; for so many have now, more or less, a vote in it! How to shape the States-General? There is a problem. Each Body-corporate, each privileged, each organised Class has secret hopes of its own in that matter; and also secret misgivings of its own,—for, behold, this monstrous twenty-million Class, hitherto the dumb sheep which these others had to agree about the manner of shearing, is now also arising with hopes! It has ceased or is ceasing to be dumb; it speaks through Pamphlets, or at least brays and growls behind them, in unison,—increasing wonderfully their volume of sound.
+## The Big Questions
 
-As for the Parlement of Paris, it has at once declared for the “old form of 1614.” Which form had this advantage, that the *Tiers Etat*, Third Estate, or Commons, figured there as a show mainly: whereby the Noblesse and Clergy had but to avoid quarrel between themselves, and decide unobstructed what *they* thought best. Such was the clearly declared opinion of the Paris Parlement. But, being met by a storm of mere hooting and howling from all men, such opinion was blown straightway to the winds; and the popularity of the Parlement along with it,—never to return. The Parlements part, we said above, was as good as played. Concerning which, however, there is this further to be noted: the proximity of dates. It was on the 22nd of September that the Parlement returned from “vacation” or “exile in its estates;” to be reinstalled amid boundless jubilee from all Paris. Precisely next day it was, that this same Parlement came to its “clearly declared opinion:” and then on the morrow after that, you behold it “covered with outrages”; its outer court, one vast sibilation, and the glory departed from it for evermore.[^108] A popularity of twenty-four hours was, in those times, no uncommon allowance.
+Two issues dominated the debate:
 
-On the other hand, how superfluous was that invitation of Loménie’s: the invitation to thinkers! Thinkers and unthinkers, by the million, are spontaneously at their post, doing what is in them. Clubs labour: *Societe Publicole;* Breton Club; Enraged Club, *Club des Enrages*. Likewise Dinner-parties in the Palais Royal; your Mirabeaus, Talleyrands dining there, in company with Chamforts, Morellets, with Duponts and hot Parlementeers, not without object! For a certain *Necker*ean Lion’s-provider, whom one could name, assembles them there;[^109]—or even their own private determination to have dinner does it. And then as to Pamphlets—in figurative language; “it is a sheer snowing of pamphlets; like to snow up the Government thoroughfares!” Now is the time for Friends of Freedom; sane, and even insane.
+1. **Double Representation**: Should the Third Estate get twice as many deputies as each of the other two estates? (Which would mean: Clergy 300, Nobles 300, Commons 600)
 
-Count, or self-styled Count, d’Aintrigues, “the young Languedocian gentleman,” with perhaps Chamfort the Cynic to help him, rises into furor almost Pythic; highest, where many are high.[^110] Foolish young Languedocian gentleman; who himself so soon, “emigrating among the foremost,” must fly indignant over the marches, with the *Contrat Social* in his pocket,—towards outer darkness, thankless intriguings, *ignis-fatuus* hoverings, and death by the stiletto! Abbé Sieyes has left Chartres Cathedral, and canonry and book-shelves there; has let his tonsure grow, and come to Paris with a secular head, of the most irrefragable sort, to ask three questions, and answer them: *What is the Third Estate? All.—What has it hitherto been in our form of government? Nothing.—What does it want? To become Something.*
+2. **Voting by Head**: Should the three estates meet together and vote as individuals? Or should each estate meet separately and vote as a bloc?
 
-D’Orléans,—for be sure he, on his way to Chaos, is in the thick of this,—promulgates his *Deliberations;*[^111] fathered by him, written by Laclos of the *Liaisons Dangereuses.* The result of which comes out simply: “The Third Estate is the Nation.” On the other hand, Monseigneur d’Artois, with other Princes of the Blood, publishes, in solemn *Memorial* to the King, that if such things be listened to, Privilege, Nobility, Monarchy, Church, State and Strongbox are in danger.[^112] In danger truly: and yet if you do not listen, are they out of danger? It is the voice of all France, this sound that rises. Immeasurable, manifold; as the sound of outbreaking waters: wise were he who knew what to do in it,—if not to fly to the mountains, and hide himself?
+These sound like boring procedural questions. They're actually life-or-death.
 
-How an ideal, all-seeing Versailles Government, sitting there on such principles, in such an environment, would have determined to demean itself at this new juncture, may even yet be a question. Such a Government would have felt too well that its long task was now drawing to a close; that, under the guise of these States-General, at length inevitable, a new omnipotent Unknown of Democracy was coming into being; in presence of which no Versailles Government either could or should, except in a provisory character, continue extant. To enact which provisory character, so unspeakably important, might its whole faculties but have sufficed; and so a peaceable, gradual, well-conducted Abdication and *Domine-dimittas* have been the issue!
+If each estate votes separately (as they did in 1614), the clergy and nobles can always outvote the commons 2-1. Nothing changes.
 
-This for our ideal, all-seeing Versailles Government. But for the actual irrational Versailles Government? Alas, that is a Government existing there only for its own behoof: without right, except possession; and now also without might. It foresees nothing, sees nothing; has not so much as a purpose, but has only purposes,—and the instinct whereby all that exists will struggle to keep existing. Wholly a vortex; in which vain counsels, hallucinations, falsehoods, intrigues, and imbecilities whirl; like withered rubbish in the meeting of winds! The Œil-de-Bœuf has its irrational hopes, if also its fears. Since hitherto all States-General have done as good as nothing, why should these do more? The Commons, indeed, look dangerous; but on the whole is not revolt, unknown now for five generations, an impossibility? The Three Estates can, by management, be set against each other; the Third will, as heretofore, join with the King; will, out of mere spite and self-interest, be eager to tax and vex the other two. The other two are thus delivered bound into our hands, that we may fleece them likewise. Whereupon, money being got, and the Three Estates all in quarrel, dismiss them, and let the future go as it can! As good Archbishop Loménie was wont to say: ‘There are so many accidents; and it needs but one to save us.’—How many to destroy us?
+If everyone votes together by head count, and the Third Estate has double the numbers, the commons could potentially win votes by finding allies among liberal nobles and reform-minded clergy.
 
-Poor Necker in the midst of such an anarchy does what is possible for him. He looks into it with obstinately hopeful face; lauds the known rectitude of the kingly mind; listens indulgent-like to the known perverseness of the queenly and courtly;—emits if any proclamation or regulation, one favouring the *Tiers Etat;* but settling nothing; hovering afar off rather, and advising all things to settle themselves. The grand questions, for the present, have got reduced to two: the Double Representation, and the Vote by Head. Shall the Commons have a “double representation,” that is to say, have as many members as the Noblesse and Clergy united? Shall the States-General, when once assembled, vote and deliberate, in one body, or in three separate bodies; “vote by head, or vote by class,”—*ordre* as they call it? These are the moot-points now filling all France with jargon, logic and eleutheromania. To terminate which, Necker bethinks him, Might not a second Convocation of the Notables be fittest? Such second Convocation is resolved on.
+The entire future of France hinges on these procedural rules.
 
-On the 6th of November of this year 1788, these Notables accordingly have reassembled; after an interval of some eighteen months. They are Calonne’s old Notables, the same Hundred and Forty-four,—to show one’s impartiality; likewise to save time. They sit there once again, in their Seven Bureaus, in the hard winter weather: it is the hardest winter seen since 1709; thermometer below zero of Fahrenheit, Seine River frozen over.[^113] Cold, scarcity and eleutheromaniac clamour: a changed world since these Notables were “organed out,” in May gone a year! They shall see now whether, under their Seven Princes of the Blood, in their Seven Bureaus, they can settle the moot-points.
+## The Parlement Blows It
 
-To the surprise of Patriotism, these Notables, once so patriotic, seem to incline the wrong way; towards the anti-patriotic side. They stagger at the Double Representation, at the Vote by Head: there is not affirmative decision; there is mere debating, and that not with the best aspects. For, indeed, were not these Notables themselves mostly of the Privileged Classes? They clamoured once; now they have their misgivings; make their dolorous representations. Let them vanish, ineffectual; and return no more! They vanish after a month’s session, on this 12th of December, year 1788: the *last* terrestrial Notables, not to reappear any other time, in the History of the World.
+Remember the Parlement of Paris, those brave defenders of liberty?
 
-And so, the clamour still continuing, and the Pamphlets; and nothing but patriotic Addresses, louder and louder, pouting in on us from all corners of France,—Necker himself some fortnight after, before the year is yet done, has to present his *Report*,[^114] recommending at his own risk that same Double Representation; nay almost enjoining it, so loud is the jargon and eleutheromania. What dubitating, what circumambulating! These whole six noisy months (for it began with Brienne in July,) has not *Report* followed *Report*, and one Proclamation flown in the teeth of the other?[^115]
+On September 22, 1788, they returned triumphantly to Paris from their exile, cheered as heroes by massive crowds.
 
-However, that first moot-point, as we see, is now settled. As for the second, that of voting by Head or by Order, it unfortunately is still left hanging. It hangs there, we may say, between the Privileged Orders and the Unprivileged; as a ready-made battle-prize, and necessity of war, from the very first: which battle-prize whosoever seizes it—may thenceforth bear as battle-flag, with the best omens!
+On September 23, they declared that the States-General should follow "the forms of 1614"—meaning separate estates, equal representation, votes by bloc.
 
-But so, at least, by Royal Edict of the 24th of January,[^116] does it finally, to impatient expectant France, become not only indubitable that National Deputies *are* to meet, but possible (so far and hardly farther has the royal Regulation gone) to begin electing them.
+On September 24, they were being cursed in the streets, their reputation destroyed forever.
 
-[^107]: Montgaillard, i. 461.
-[^108]: Weber, i. 347.
-[^109]: Ibid. i. 360.
-[^110]: Mémoire sur les Etats-Généraux. See Montgaillard, i. 457-9.
-[^111]: Délibérations à prendre pour les Assemblées des Bailliages.
-[^112]: Mémoire présenté au Roi , par Monseigneur Comte d’Artois, M. le Prince de
-[^113]: Marmontel, Mémoires (London, 1805), iv. 33. Hist. Parl. &c.
-[^114]: Rapport fait au Roi dans son Conseil, le 27 Décembre 1788.
-[^115]: 5th July; 8th August; 23rd September, &c. &c.
-[^116]: Réglement du Roi pour la Convocation des Etats-Généraux à Versailles. (Reprinted, wrong dated, in Histoire Parlementaire, i. 262.)
+Twenty-four hours of popularity. That's all they got.
+
+Turns out, the Parlement was never really about liberty. It was about THEIR privileges. When it came to actually sharing power with the common people? Hard pass.
+
+## The Pamphlet Storm
+
+If you thought the earlier pamphlet wars were intense, you ain't seen nothing yet.
+
+Sieyès's "What Is the Third Estate?" became the manifesto of the movement:
+- What is the Third Estate? EVERYTHING.
+- What has it been until now? NOTHING.  
+- What does it want to be? SOMETHING.
+
+Simple. Devastating. Revolutionary.
+
+The Duke of Orléans (still stirring up trouble) published his own tract arguing "The Third Estate IS the Nation." Because of course he did.
+
+Meanwhile, the princes of the blood—including the Count d'Artois—published a terrified memorial to the King warning that if the Third Estate got too much power, everything would collapse: privilege, monarchy, church, the whole social order.
+
+They weren't wrong. But they also couldn't stop it.
+
+## Necker's Dilemma
+
+Poor Necker. He's back in power, the hero of the hour, and he has to somehow thread this needle.
+
+His instinct was to "let things settle themselves"—to avoid taking strong positions, to recommend studies and consultations, to defer decisions.
+
+But the pressure was overwhelming. Pamphlets flooded in from every corner of France demanding Double Representation. The people had spoken.
+
+## The Notables Return (Briefly)
+
+Necker's bright idea: bring back the Notables! Let THEM decide the procedural questions!
+
+The same 144 Notables from 1787 were reconvened in November 1788. Surely they'd do the right thing?
+
+They didn't.
+
+To the "surprise of Patriotism" (i.e., exactly zero surprise to anyone paying attention), these Notables—mostly nobles and clergy themselves—refused to endorse Double Representation or voting by head. They wanted to protect their privileges, same as always.
+
+After a month of useless debate, they were dismissed on December 12, 1788. They'd be the last Notables in French history. Good riddance.
+
+## The Decision
+
+With the Notables deadlocked, Necker had to make a choice. On December 27, 1788, he issued a report recommending Double Representation for the Third Estate.
+
+This was HUGE. It meant the commons would have numerical parity with the privileged orders combined.
+
+But—and this was crucial—the question of voting by head or by order was LEFT UNRESOLVED. 
+
+Necker was hoping the deputies would sort it out themselves once they gathered. This was either brilliant or incredibly naive. (Spoiler: it was naive.)
+
+## The Calendar Set
+
+On January 24, 1789, a royal edict officially called the States-General to convene at Versailles on May 1, 1789.
+
+Elections would begin immediately. Across France, in parishes and guilds and provincial assemblies, millions of French people would participate in choosing representatives for the first time.
+
+The weather that winter was brutal—the coldest since 1709. The Seine froze solid. The bread shortage continued. People were hungry, cold, and desperate.
+
+Into that desperation, pour political excitement unlike anything France had ever seen.
+
+The elections were about to begin. And nothing would ever be the same.
