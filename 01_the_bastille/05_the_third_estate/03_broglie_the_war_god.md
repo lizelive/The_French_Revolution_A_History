@@ -1,40 +1,81 @@
-# Broglie the War-God
+# Broglie the War-God: The Military Buildup
 
-The Court feels indignant that it is conquered; but what then? Another time it will do better. Mercury descended in vain; now has the time come for Mars.—The gods of the Œil-de-Bœuf have withdrawn into the darkness of their cloudy Ida; and sit there, shaping and forging what may be needful, be it “billets of a new National Bank,” munitions of war, or things forever inscrutable to men.
+July 1789. On the surface, everything looks like it's calming down. The National Assembly meets peacefully. The deputies debate constitutional principles. The King seems to have accepted reality.
 
-Accordingly, what means this “apparatus of troops”? The National Assembly can get no furtherance for its Committee of Subsistences; can hear only that, at Paris, the Bakers’ shops are besieged; that, in the Provinces, people are living on “meal-husks and boiled grass.” But on all highways there hover dust-clouds, with the march of regiments, with the trailing of cannon: foreign Pandours, of fierce aspect; Salis-Samade, Esterhazy, Royal-Allemand; so many of them foreign, to the number of thirty thousand,—which fear can magnify to fifty: all wending towards Paris and Versailles! Already, on the heights of Montmartre, is a digging and delving; too like a scarping and trenching. The effluence of Paris is arrested Versailles-ward by a barrier of cannon at Sèvres Bridge. From the Queen’s Mews, cannon stand pointed on the National Assembly Hall itself. The National Assembly has its very slumbers broken by the tramp of soldiery, swarming and defiling, endless, or seemingly endless, all round those spaces, at dead of night, “without drum-music, without audible word of command.”[^160] What means it?
+But under the surface, armies are marching.
 
-Shall eight, or even shall twelve Deputies, our Mirabeaus, Barnaves at the head of them, be whirled suddenly to the Castle of Ham; the rest ignominiously dispersed to the winds? No National Assembly can make the Constitution with cannon levelled on it from the Queen’s Mews! What means this reticence of the Œil-de-Bœuf, broken only by nods and shrugs? In the mystery of that cloudy Ida, what is it that they forge and shape?—Such questions must distracted Patriotism keep asking, and receive no answer but an echo.
+## The Hardliner Counter-Attack
 
-Enough of themselves! But now, above all, while the hungry food-year, which runs from August to August, is getting older; becoming more and more a famine-year? With “meal-husks and boiled grass,” Brigands may actually collect; and, in crowds, at farm and mansion, howl angrily, *Food! Food!* It is in vain to send soldiers against them: at sight of soldiers they disperse, they vanish as under ground; then directly reassemble elsewhere for new tumult and plunder. Frightful enough to look upon; but what to *hear* of, reverberated through Twenty-five Millions of suspicious minds! Brigands and Broglie, open Conflagration, preternatural Rumour are driving mad most hearts in France. What will the issue of these things be?
+The royal court refused to accept defeat. While Louis XVI publicly ordered the nobles and clergy to join the Assembly, his conservative advisors were planning something else.
 
-At Marseilles, many weeks ago, the Townsmen have taken arms; for “suppressing of Brigands,” and other purposes: the military commandant may make of it what he will. Elsewhere, everywhere, could not the like be done? Dubious, on the distracted Patriot imagination, wavers, as a last deliverance, some foreshadow of a *National Guard*. But conceive, above all, the Wooden Tent in the Palais Royal! A universal hubbub there, as of dissolving worlds: their loudest bellows the mad, mad-making voice of Rumour; their sharpest gazes Suspicion into the pale dim World-Whirlpool; discerning shapes and phantasms; imminent bloodthirsty Regiments camped on the Champ-de-Mars; dispersed National Assembly; redhot cannon-balls (to burn Paris);—the mad War-god and Bellona’s sounding thongs. To the calmest man it is becoming too plain that battle is inevitable.
+The strategy: bring in reliable troops, surround Paris, and either intimidate the Assembly into submission or dissolve it by force.
 
-Inevitable, silently nod Messeigneurs and Broglie: Inevitable and brief! Your National Assembly, stopped short in its Constitutional labours, may fatigue the royal ear with addresses and remonstrances: those cannon of ours stand duly levelled; those troops are here. The King’s Declaration, with its Thirty-five too generous Articles, was spoken, was not listened to; but remains yet unrevoked: he himself shall effect it, *seul il fera!*
+The man in charge of this operation? Marshal de Broglie, an old-school military veteran with no patience for revolutionary nonsense. Contemporaries called him "the War-God"—not a compliment in this context.
 
-As for Broglie, he has his headquarters at Versailles, all as in a seat of war: clerks writing; significant staff-officers, inclined to taciturnity; plumed aides-de-camp, scouts, orderlies flying or hovering. He himself looks forth, important, impenetrable; listens to Besenval Commandant of Paris, and his warning and earnest counsels (for he has come out repeatedly on purpose), with a silent smile.[^161] The Parisians resist? scornfully cry Messeigneurs. As a meal-mob may! They have sat quiet, these five generations, submitting to all. Their Mercier declared, in these very years, that a Parisian revolt was henceforth “impossible.”[^162] Stand by the royal Declaration, of the Twenty-third of June. The Nobles of France, valorous, chivalrous as of old, will rally round us with one heart;—and as for this which you call Third Estate, and which we call *canaille* of unwashed Sansculottes, of Patelins, Scribblers, factious Spouters,—brave Broglie, “with a whiff of grapeshot (*salve de canons*),” if need be, will give quick account of it. Thus reason they: on their cloudy Ida; hidden from men,—men also hidden from them.
+## The Troop Movements
 
-Good is grapeshot, Messeigneurs, on one condition: that the shooter also were made of metal! But unfortunately he is made of flesh; under his buffs and bandoleers your hired shooter has instincts, feelings, even a kind of thought. It is his kindred, bone of his bone, this same *canaille* that shall be whiffed; he has brothers in it, a father and mother,—living on meal-husks and boiled grass. His very doxy, not yet “dead i’ the spital,” drives him into military heterodoxy; declares that if he shed Patriot blood, he shall be accursed among men. The soldier, who has seen his pay stolen by rapacious Foulons, his blood wasted by Soubises, Pompadours, and the gates of promotion shut inexorably on him if he were not born noble,—is himself not without griefs against you. Your cause is not the soldier’s cause; but, as would seem, your own only, and no other god’s nor man’s.
+Throughout late June and early July, royal troops poured toward Paris and Versailles.
 
-For example, the world may have heard how, at Bethune lately, when there rose some “riot about grains,” of which sort there are so many, and the soldiers stood drawn out, and the word “Fire! was given,—not a trigger stirred; only the butts of all muskets rattled angrily against the ground; and the soldiers stood glooming, with a mixed expression of countenance;—till clutched “each under the arm of a patriot householder,” they were all hurried off, in this manner, to be treated and caressed, and have their pay increased by subscription![^163]
+Twenty thousand soldiers. Thirty thousand. More arriving daily.
 
-Neither have the Gardes Françaises, the best regiment of the line, shown any promptitude for street-firing lately. They returned grumbling from Réveillon’s; and have not burnt a single cartridge since; nay, as we saw, not even when bid. A dangerous humour dwells in these Gardes. Notable men too, in their way! Valadi the Pythagorean was, at one time, an officer of theirs. Nay, in the ranks, under the three-cornered felt and cockade, what hard heads may there not be, and reflections going on,—unknown to the public! One head of the hardest we do now discern there: on the shoulders of a certain Sergeant Hoche. Lazare Hoche, that is the name of him; he used to be about the Versailles Royal Stables, nephew of a poor herbwoman; a handy lad; exceedingly addicted to reading. He is now Sergeant Hoche, and can rise no farther: he lays out his pay in rushlights, and cheap editions of books.[^164]
+These weren't the normal garrison units. Many were FOREIGN regiments—Swiss and German mercenaries who wouldn't have qualms about firing on French crowds. The government clearly didn't trust French soldiers to suppress their own countrymen.
 
-On the whole, the best seems to be: Consign these Gardes Françaises to their Barracks. So Besenval thinks, and orders. Consigned to their barracks, the Gardes Françaises do but form a “Secret Association,” an Engagement not to act against the National Assembly. Debauched by Valadi the Pythagorean; debauched by money and women! cry Besenval and innumerable others. Debauched by what you will, or in need of no debauching, behold them, long files of them, their consignment broken, arrive, headed by their Sergeants, on the 26th day of June, at the Palais Royal! Welcomed with vivats, with presents, and a pledge of patriot liquor; embracing and embraced; declaring in words that the cause of France is their cause! Next day and the following days the like. What is singular too, except this patriot humour, and breaking of their consignment, they behave otherwise with “the most rigorous accuracy.”[^165]
+The official explanation? The troops were there to "maintain order." Nobody believed it.
 
-They are growing questionable, these Gardes! Eleven ring-leaders of them are put in the Abbaye Prison. It boots not in the least. The imprisoned Eleven have only, “by the hand of an individual,” to drop, towards nightfall, a line in the Café de Foy; where Patriotism harangues loudest on its table. “Two hundred young persons, soon waxing to four thousand,” with fit crowbars, roll towards the Abbaye; smite asunder the needful doors; and bear out their Eleven, with other military victims:—to supper in the Palais Royal Garden; to board, and lodging “in campbeds, in the *Théâtre des Variétés;*” other national *Prytaneum* as yet not being in readiness. Most deliberate! Nay so punctual were these young persons, that finding one military victim to have been imprisoned for real civil crime, they returned him to his cell, with protest.
+## Paris Panics
 
-Why new military force was not called out? New military force was called out. New military force did arrive, full gallop, with drawn sabre: but the people gently “laid hold of their bridles;” the dragoons sheathed their swords; lifted their caps by way of salute, and sat like mere statues of dragoons,—except indeed that a drop of liquor being brought them, they “drank to the King and Nation with the greatest cordiality.”[^166]
+In Paris, anxiety exploded into near-hysteria.
 
-And now, ask in return, why Messeigneurs and Broglie the great god of war, on seeing these things, did not pause, and take some other course, any other course? Unhappily, as we said, they could see nothing. Pride, which goes before a fall; wrath, if not reasonable, yet pardonable, most natural, had hardened their hearts and heated their heads; so, with imbecility and violence (ill-matched pair), they rush to seek their hour. All Regiments are not Gardes Françaises, or debauched by Valadi the Pythagorean: let fresh undebauched Regiments come up; let Royal-Allemand, Salais-Samade, Swiss Château-Vieux come up,—which can fight, but can hardly speak except in German gutturals; let soldiers march, and highways thunder with artillery-waggons: Majesty has a new Royal Session to hold,—and miracles to work there! The whiff of grapeshot can, if needful, become a blast and tempest.
+The city was surrounded by hostile armies! The King was planning a coup! They were going to dissolve the Assembly, arrest the deputies, crush the people!
 
-In which circumstances, before the redhot balls begin raining, may not the Hundred-and-twenty Paris Electors, though their *Cahier* is long since finished, see good to meet again daily, as an “Electoral Club”? They meet first “in a Tavern;”—where “the largest wedding-party” cheerfully give place to them.[^167] But latterly they meet in the *Hôtel-de-Ville*, in the Townhall itself. Flesselles, Provost of Merchants, with his Four Echevins (*Scabins*, Assessors), could not prevent it; such was the force of public opinion. He, with his Echevins, and the Six-and-Twenty Town-Councillors, all appointed from Above, may well sit silent there, in their long gowns; and consider, with awed eye, what prelude this is of convulsion coming from Below, and how themselves shall fare in that!
+Crowds gathered. Rumors flew. People started stockpiling food. Bread prices—already sky-high—jumped further as panic buying set in.
 
-[^160]: A. Lameth, Assemblée Constituante , i. 41.
-[^161]: Besenval, iii. 398.
-[^162]: Mercier, Tableau de Paris , vi. 22.
-[^163]: Histoire Parlementaire.
-[^164]: Dictionnaire des Hommes Marquans , Londres (Paris), 1800, ii. 198.
-[^165]: Besenval, iii. 394-6.
-[^166]: Histoire Parlementaire , ii. 32.
-[^167]: Dusaulx, Prise de la Bastille ( Collection des Mémoires , par
+The Palais-Royal, that center of political agitation, became an open-air meeting hall where orators harangued crowds all day and all night. The Duke of Orléans's investment in redevelopment was paying political dividends in the most unexpected way.
+
+## The Assembly's Response
+
+The deputies could see the noose tightening.
+
+Mirabeau gave a speech demanding that the King withdraw the troops. Other deputies argued that the military buildup proved the court's bad faith. Some wanted to move the Assembly away from Versailles, out of the army's immediate reach.
+
+On July 8, the Assembly formally requested the removal of the troops. Louis XVI refused—politely, but firmly. The troops were there for protection, he said. If the Assembly felt unsafe near them, perhaps the Assembly should relocate to some provincial town?
+
+Yeah, no.
+
+## July 11: The Bomb Drops
+
+On July 11, the axe fell.
+
+Necker—the popular hero, the financial wizard, the symbol of reform—was FIRED. Dismissed from office. Ordered to leave France immediately.
+
+He was replaced by a ministry of hardliners: the Baron de Breteuil, Marshal de Broglie, and other reactionaries. These were men who made no secret of their contempt for the National Assembly.
+
+The message was unmistakable: the coup was underway.
+
+## Paris Explodes
+
+When the news of Necker's dismissal reached Paris on July 12, the city went berserk.
+
+Camille Desmoulins, a young journalist with a stutter that disappeared when he got excited, jumped on a table at the Palais-Royal and called the people to arms:
+
+> "Citizens! They are preparing a Saint Bartholomew's Day for the patriots! Tonight, the Swiss and German battalions will leave the Champ de Mars to slit our throats! We have only one resource—TO ARMS!"
+
+He grabbed a green leaf and stuck it in his hat as a cockade. Others followed. Within hours, thousands of Parisians were wearing green ribbons, chanting, demonstrating.
+
+That night, the Royal German cavalry charged into a peaceful crowd at the Tuileries garden. Sabers flashed. People fell. First blood had been drawn.
+
+The revolution had turned violent.
+
+## The Night of July 12-13
+
+Nobody slept.
+
+The crowds roamed the streets, looking for weapons. They broke into gunsmiths' shops. They rang the city's bells in the *tocsin*—the alarm that called citizens to emergency.
+
+Rumors flew: The Swiss regiments were coming! The city would be bombarded! The bridges would be destroyed!
+
+The electors of Paris—the bourgeois who had organized the Third Estate elections—met through the night at the Hôtel de Ville. They desperately tried to establish some authority, some structure for the chaos.
+
+They decided to form a citizen militia: a National Guard. But a militia needs weapons.
+
+And Paris knew where to find weapons.
