@@ -1,23 +1,92 @@
-# Printed Paper
+# Printed Paper: The Written Signs of Doom
 
-In such a practical France, let the theory of Perfectibility say what it will, discontents cannot be wanting: your promised Reformation is so indispensable; yet it comes not; who will begin it—with himself? Discontent with what is around us, still more with what is above us, goes on increasing; seeking ever new vents.
+In a France full of promises and no delivery, discontent keeps growing. And increasingly, that discontent finds its voice in print.
 
-Of Street Ballads, of Epigrams that from of old tempered Despotism, we need not speak. Nor of Manuscript Newspapers (*Nouvelles à la main*) do we speak. Bachaumont and his journeymen and followers may close those “thirty volumes of scurrilous eaves-dropping,” and quit that trade; for at length if not liberty of the Press, there is license. Pamphlets can be surreptititiously vended and read in Paris, did they even bear to be “Printed at Pekin.” We have a *Courrier de l’Europe* in those years, regularly published at London; by a De Morande, whom the guillotine has not yet devoured. There too an unruly Linguet, still unguillotined, when his own country has become too hot for him, and his brother Advocates have cast him out, can emit his hoarse wailings, and *Bastille Dévoilée* (Bastille unveiled). Loquacious Abbé Raynal, at length, has his wish; sees the *Histoire Philosophique,* with its “lubricity,” unveracity, loose loud eleutheromaniac rant (contributed, they say, by Philosophedom at large, though in the Abbé’s name, and to his glory), burnt by the common hangman;—and sets out on his travels as a martyr. It was the edition of 1781; perhaps the last notable book that had such fire-beatitude,—the hangman discovering now that it did not serve.
+## The Rise of Scandal Media
 
-Again, in Courts of Law, with their money-quarrels, divorce-cases, wheresoever a glimpse into the household existence can be had, what indications! The Parlements of Besancon and Aix ring, audible to all France, with the amours and destinies of a young Mirabeau. He, under the nurture of a “Friend of Men,” has, in State Prisons, in marching Regiments, Dutch Authors” garrets, and quite other scenes, “been for twenty years learning to resist despotism:” despotism of men, and alas also of gods. How, beneath this rose-coloured veil of Universal Benevolence and *Astræa Redux*, is the sanctuary of Home so often a dreary void, or a dark contentious Hell-on-Earth! The old Friend of Men has his own divorce case too; and at times, “his whole family but one” under lock and key: he writes much about reforming and enfranchising the world; and for his own private behoof he has needed sixty *Lettres-de-Cachet*. A man of insight too, with resolution, even with manful principle: but in such an element, inward and outward; which he could not rule, but only madden. Edacity, rapacity;—quite contrary to the finer sensibilities of the heart! Fools, that expect your verdant Millennium, and nothing but Love and Abundance, brooks running wine, winds whispering music,—with the whole ground and basis of your existence champed into a mud of Sensuality; which, daily growing deeper, will soon have no bottom but the Abyss!
+Censorship in France has gone from strict to... porous. Technically, you still can't print just anything. But in practice? Pamphlets "printed in Peking" circulate freely in Paris. Newsletters get hand-copied and passed around. The *Courrier de l'Europe* publishes from London, safely beyond French law, printing things that would get you arrested in Paris.
 
-Or consider that unutterable business of the Diamond Necklace. Red-hatted Cardinal Louis de Rohan; Sicilian jail-bird Balsamo Cagliostro; milliner Dame de Lamotte, “with a face of some piquancy:” the highest Church Dignitaries waltzing, in Walpurgis Dance, with quack-prophets, pickpurses and public women;—a whole Satan’s Invisible World displayed; working there continually under the daylight visible one; the smoke of its torment going up for ever! The Throne has been brought into scandalous collision with the Treadmill. Astonished Europe rings with the mystery for ten months; sees only lie unfold itself from lie; corruption among the lofty and the low, gulosity, credulity, imbecility, strength nowhere but in the hunger. Weep, fair Queen, thy first tears of unmixed wretchedness! Thy fair name has been tarnished by foul breath; irremediably while life lasts. No more shalt thou be loved and pitied by living hearts, till a new generation has been born, and thy own heart lies cold, cured of all its sorrows.—The Epigrams henceforth become, not sharp and bitter; but cruel, atrocious, unmentionable. On that 31st of May, 1786, a miserable Cardinal Grand-Almoner Rohan, on issuing from his Bastille, is escorted by hurrahing crowds: unloved he, and worthy of no love; but important since the Court and Queen are his enemies.[^49]
+The content? SCANDAL. Corruption exposed. Affairs revealed. The powerful mocked.
 
-How is our bright Era of Hope dimmed: and the whole sky growing bleak with signs of hurricane and earthquake! It is a doomed world: gone all “obedience that made men free;” fast going the obedience that made men slaves,—at least to one another. Slaves only of their own lusts they now are, and will be. Slaves of sin; inevitably also of sorrow. Behold the mouldering mass of Sensuality and Falsehood; round which plays foolishly, itself a corrupt phosphorescence, some glimmer of Sentimentalism;—and over all, rising, as Ark of *their* Covenant, the grim Patibulary Fork “forty feet high;” which also is now nigh rotted. Add only that the French Nation distinguishes itself among Nations by the characteristic of Excitability; with the good, but also with the perilous evil, which belongs to that. Rebellion, explosion, of unknown extent is to be calculated on. There are, as Chesterfield wrote, “all the symptoms I have ever met with in History!”
+An imprisoned lawyer named Linguet writes from exile about the horrors of the Bastille—*Bastille Unveiled*—and it sells like crazy. Abbé Raynal publishes a "philosophical history" so lubricious and anti-establishment that it gets publicly burned by the hangman. (The hangman is starting to notice this doesn't actually do anything.)
 
-Shall we say, then: Wo to Philosophism, that it destroyed Religion, what it called “extinguishing the abomination (*écraser l’infâme*)”? Wo rather to those that made the Holy an abomination, and extinguishable; wo at all men that live in such a time of world-abomination and world-destruction! Nay, answer the Courtiers, it was Turgot, it was Necker, with their mad innovating; it was the Queen’s want of etiquette; it was he, it was she, it was that. Friends! it was every scoundrel that had lived, and quack-like pretended to be doing, and been only eating and *mis*doing, in all provinces of life, as Shoeblack or as Sovereign Lord, each in his degree, from the time of Charlemagne and earlier. All this (for be sure no falsehood perishes, but is as seed sown out to grow) has been storing itself for thousands of years; and now the account-day has come. And rude will the settlement be: of wrath laid up against the day of wrath. O my Brother, be not thou a Quack! Die rather, if thou wilt take counsel; ’tis but dying once, and thou art quit of it for ever. Cursed is that trade; and bears curses, thou knowest not how, long ages after thou art departed, and the wages thou hadst are all consumed; nay, as the ancient wise have written,—through Eternity itself, and is verily marked in the Doom-Book of a God!
+## The Mirabeau Scandals
 
-Hope deferred maketh the heart sick. And yet, as we said, Hope is but deferred; not abolished, not abolishable. It is very notable, and touching, how this same Hope does still light onwards the French Nation through all its wild destinies. For we shall still find Hope shining, be it for fond invitation, be it for anger and menace; as a mild heavenly light it shone; as a red conflagration it shines: burning sulphurous blue, through darkest regions of Terror, it still shines; and goes sent out at all, since Desperation itself is a kind of Hope. Thus is our Era still to be named of Hope, though in the saddest sense,—when there is nothing left but Hope.
+Want to know how messed up French society is? Look at the Mirabeau family.
 
-But if any one would know summarily what a Pandora’s Box lies there for the opening, he may see it in what by its nature is the symptom of all symptoms, the surviving Literature of the Period. Abbé Raynal, with his lubricity and loud loose rant, has spoken *his* word; and already the fast-hastening generation responds to another. Glance at Beaumarchais’ *Mariage de Figaro;* which now (in 1784), after difficulty enough, has issued on the stage; and “runs its hundred nights,” to the admiration of all men. By what virtue or internal vigour it so ran, the reader of our day will rather wonder:—and indeed will know so much the better that it flattered some pruriency of the time; that it spoke what all were feeling, and longing to speak. Small substance in that *Figaro:* thin wiredrawn intrigues, thin wiredrawn sentiments and sarcasms; a thing lean, barren; yet which winds and whisks itself, as through a wholly mad universe, adroitly, with a high-sniffing air: wherein each, as was hinted, which is the grand secret, may see some image of himself, and of his own state and ways. So it runs its hundred nights, and all France runs with it; laughing applause. If the soliloquising Barber ask: ‘What has your Lordship done to earn all this?’ and can only answer: ‘You took the trouble to be born (*Vous vous êtes donné la peine de naître*),’ all men must laugh: and a gay horse-racing Anglomaniac Noblesse loudest of all. For how can small books have a great danger in them? asks the Sieur Caron; and fancies his thin epigram may be a kind of reason. Conqueror of a golden fleece, by giant smuggling; tamer of hell-dogs, in the Parlement Maupeou; and finally crowned Orpheus in the *Théâtre Français*, Beaumarchais has now culminated, and unites the attributes of several demigods. We shall meet him once again, in the course of his decline.
+The old Marquis de Mirabeau (remember him? "The Friend of Men"?) has written extensively about reforming society. In his personal life, though, he's needed **sixty** *lettres de cachet*—those arbitrary royal warrants—to control his own family. At one point, he had everyone BUT ONE family member locked up.
 
-Still more significant are two Books produced on the eve of the ever-memorable Explosion itself, and read eagerly by all the world: Saint-Pierre’s *Paul et Virginie*, and Louvet’s *Chevalier de Faublas*. Noteworthy Books; which may be considered as the last speech of old Feudal France. In the first there rises melodiously, as it were, the wail of a moribund world: everywhere wholesome Nature in unequal conflict with diseased perfidious Art; cannot escape from it in the lowest hut, in the remotest island of the sea. Ruin and death must strike down the loved one; and, what is most significant of all, death even here not by necessity, but by etiquette. What a world of prurient corruption lies visible in that super-sublime of modesty! Yet, on the whole, our good Saint-Pierre is musical, poetical though most morbid: we will call his Book the swan-song of old dying France.
+His son, the young Mirabeau (who will become hugely important later), has been causing trouble for twenty years: state prisons, army service, running off with other men's wives, writing from Dutch garrets. His trials for adultery and abduction become public entertainment, the juicy details spread across France.
 
-Louvet’s again, let no man account musical. Truly, if this wretched *Faublas* is a death-speech, it is one under the gallows, and by a felon that does not repent. Wretched *cloaca* of a Book; without depth even as a cloaca! What “picture of French society” is here? Picture properly of nothing, if not of the mind that gave it out as some sort of picture. Yet symptom of much; above all, of the world that could nourish itself thereon.
+And here's the thing: the Marquis writes about freedom and human rights in his pamphlets. But in his house, he runs a petty tyranny enforced by royal warrants. The public preaches one thing; the private reveals another.
 
-[^49]: Fils Adoptif, Mémoires de Mirabeau , iv. 325.
+If that's the "Friend of Men," what must his enemies be like?
+
+## The Diamond Necklace Affair
+
+In 1785, the absolute peak of scandal arrives: **The Affair of the Diamond Necklace**.
+
+The players:
+- **Cardinal de Rohan**: A prince of the Church, desperate to get back into Marie Antoinette's good graces after offending her years ago
+- **Jeanne de Lamotte**: A con artist with a talent for manipulation
+- **Count Cagliostro**: An Italian occultist/fraud who claimed magical powers
+- **The Queen**: Totally uninvolved, but her reputation gets destroyed anyway
+
+The con: Lamotte convinced Cardinal Rohan that she was the Queen's secret friend. She arranged "meetings" between him and "the Queen" (actually a lookalike prostitute in a dark garden). She convinced him to guarantee payment for an impossibly expensive diamond necklace (worth about 2 million livres), supposedly ordered by the Queen.
+
+Lamotte kept the diamonds. The jewelers came after Rohan for payment. The whole thing exploded.
+
+The trial was a sensation that lasted ten months. Every day brought new revelations of stupidity, corruption, sexual intrigue, and fraud. The Cardinal—a PRINCE OF THE CHURCH—had been fooled by a prostitute impersonating the Queen! He'd been taking advice from an Italian charlatan! The highest levels of French society were exposed as a "whole Satan's Invisible World"—gullible, greedy, and gross.
+
+And the Queen? She was completely innocent. But nobody believed it. The gossip said she'd wanted that necklace. The jokes and pamphlets were vicious, cruel, unprintable.
+
+When Rohan was acquitted (blamed for stupidity but not crime), crowds cheered him as a hero—simply because he was the Queen's enemy. That tells you everything about public opinion.
+
+Marie Antoinette wept. Her reputation never recovered.
+
+## Figaro: The Play That Said the Quiet Part Loud
+
+In 1784, Beaumarchais's play *The Marriage of Figaro* finally makes it to stage after years of royal attempts to suppress it.
+
+The plot is thin—servant tries to stop his master from exercising his supposed "right" to sleep with the servant's bride. But the DIALOGUE! Figaro, the clever servant, asks his aristocratic master:
+
+> "What have you done to deserve all your advantages?"
+> 
+> "You took the trouble to be born. That's all."
+
+The audience—INCLUDING THE ARISTOCRATS—laughed and cheered. They thought it was just witty entertainment. They didn't realize they were applauding their own death sentence.
+
+The play ran for a hundred nights. All of Paris saw it. The idea spread: What HAVE the nobles done to deserve their privileges? Maybe being born into the right family isn't enough.
+
+Louis XVI, reportedly, said after reading it: "This is detestable. It will never be performed." Then public pressure forced him to allow it. That tells you who actually had the power by 1784.
+
+## The Literature of Decay
+
+Two books published right before the Revolution capture the mood perfectly:
+
+**Paul et Virginie** by Saint-Pierre (1788): A sentimental tale of innocent lovers destroyed by the corrupt artificiality of civilization. Everywhere, "wholesome Nature" loses to "diseased Art." The climax? The heroine dies because she's too modest to remove her heavy clothes and swim to safety. She'd rather drown than be seen undressed.
+
+This is the *swan song* of old France—beautiful, morbid, weirdly fixated on propriety even unto death.
+
+**Chevalier de Faublas** by Louvet: We won't dwell on this one. It's essentially pornography dressed up as social satire. Crude, lewd, nihilistic—a "death speech by a felon that does not repent."
+
+These books are symptoms. One shows a society so artificial it would rather die than change. The other shows a society with no values left except appetite.
+
+## Reading the Signs
+
+So here's France on the eve of revolution:
+
+- The Queen's reputation is destroyed
+- The Church hierarchy is a joke  
+- Clever servants mock their masters on stage
+- Underground media spreads scandal
+- The literature is either dying-swan sentimental or openly depraved
+- Everyone feels that SOMETHING is coming
+
+As Chesterfield said (and we keep quoting): "All the symptoms I have ever met with in History."
+
+The question isn't whether there will be an explosion. The question is what will be left standing afterward.
+
+Hope is deferred. But hope doesn't die—even when everything else does.
+
+France is about to learn that the hard way.

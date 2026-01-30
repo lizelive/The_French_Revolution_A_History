@@ -1,30 +1,71 @@
-# Astræa Redux
+# Astraea Redux: The Golden Age That Wasn't
 
-A paradoxical philosopher, carrying to the uttermost length that aphorism of Montesquieu’s, “Happy the people whose annals are tiresome,” has said, “Happy the people whose annals are vacant.” In which saying, mad as it looks, may there not still be found some grain of reason? For truly, as it has been written, “Silence is divine,” and of Heaven; so in all earthly things too there is a silence which is better than any speech. Consider it well, the Event, the thing which can be spoken of and recorded, is it not, in all cases, some disruption, some solution of continuity? Were it even a glad Event, it involves change, involves loss (of active Force); and so far, either in the past or in the present, is an irregularity, a disease. Stillest perseverance were our blessedness; not dislocation and alteration,—could they be avoided.
+So Louis XV is dead. Long live Louis XVI! And holy cow, is everyone PUMPED.
 
-The oak grows silently, in the forest, a thousand years; only in the thousandth year, when the woodman arrives with his axe, is there heard an echoing through the solitudes; and the oak announces itself when, with a far-sounding crash, it *falls*. How silent too was the planting of the acorn; scattered from the lap of some wandering wind! Nay, when our oak flowered, or put on its leaves (its glad Events), what shout of proclamation could there be? Hardly from the most observant a word of recognition. These things *befell* not, they were slowly *done;* not in an hour, but through the flight of days: what was to be said of it? This hour seemed altogether as the last was, as the next would be.
+## The New Era Begins
 
-It is thus everywhere that foolish Rumour babbles not of what was done, but of what was misdone or undone; and foolish History (ever, more or less, the written epitomised synopsis of Rumour) knows so little that were not as well unknown. Attila Invasions, Walter-the-Penniless Crusades, Sicilian Vespers, Thirty-Years Wars: mere sin and misery; not work, but hindrance of work! For the Earth, all this while, was yearly green and yellow with her kind harvests; the hand of the craftsman, the mind of the thinker rested not: and so, after all, and in spite of all, we have this so glorious high-domed blossoming World; concerning which, poor History may well ask, with wonder, Whence *it* came? She knows so little of it, knows so much of what obstructed it, what would have rendered it impossible. Such, nevertheless, by necessity or foolish choice, is her rule and practice; whereby that paradox, “Happy the people whose annals are vacant,” is not without its true side.
+Here's what France looks like in 1774:
 
-And yet, what seems more pertinent to note here, there is a stillness, not of unobstructed growth, but of passive inertness, and symptom of imminent downfall. As victory is silent, so is defeat. Of the opposing forces the weaker has resigned itself; the stronger marches on, noiseless now, but rapid, inevitable: the fall and overturn will not be noiseless. How all grows, and has its period, even as the herbs of the fields, be it annual, centennial, millennial! All grows and dies, each by its own wondrous laws, in wondrous fashion of its own; spiritual things most wondrously of all. Inscrutable, to the wisest, are these latter; not to be prophesied of, or understood. If when the oak stands proudliest flourishing to the eye, you know that its heart is sound, it is not so with the man; how much less with the Society, with the Nation of men! Of such it may be affirmed even that the superficial aspect, that the inward feeling of full health, is generally ominous. For indeed it is of apoplexy, so to speak, and a plethoric lazy habit of body, that Churches, Kingships, Social Institutions, oftenest die. Sad, when such Institution plethorically says to itself, Take thy ease, thou hast goods laid up;—like the fool of the Gospel, to whom it was answered, Fool, *this night* thy life shall be required of thee!
+- **Out**: The corrupt du Barry clique, Chancellor Maupeou, and Abbé Terray (the fraudulent finance minister)
+- **In**: A young, well-meaning king (just 19!), a beautiful queen (18!), and a whole lot of optimism
 
-Is it the healthy peace, or the ominous unhealthy, that rests on France, for these next Ten Years? Over which the Historian can pass lightly, without call to linger: for as yet events are not, much less performances. Time of sunniest stillness;—shall we call it, what all men thought it, the new Age of Gold? Call it at least, of Paper; which in many ways is the succedaneum of Gold. Bank-paper, wherewith you can still buy when there is no gold left; Book-paper, splendent with Theories, Philosophies, Sensibilities,—beautiful art, not only of revealing Thought, but also of so beautifully hiding from us the want of Thought! Paper is made from the *rags* of things that did once exist; there are endless excellences in Paper.—What wisest Philosophe, in this halcyon uneventful period, could prophesy that there was approaching, big with darkness and confusion, the event of events? Hope ushers in a Revolution,—as earthquakes are preceded by bright weather. On the Fifth of May, fifteen years hence, old Louis will not be sending for the Sacraments; but a new Louis, his grandson, with the whole pomp of astonished intoxicated France, will be opening the States-General.
+It's like France got a factory reset. The oppressive judges who'd been exiled to mountaintops? They're back! The old Parliament of Paris that Louis XV had dismantled? Restored! And best of all, the new Controller-General (basically the Finance Minister) is a guy named **Turgot**—an actual *philosophe* with actual IDEAS about reform.
 
-Dubarrydom and its D’Aiguillons are gone forever. There is a young, still docile, well-intentioned King; a young, beautiful and bountiful, well-intentioned Queen; and with them all France, as it were, become young. Maupeou and his Parlement have to vanish into thick night; respectable Magistrates, not indifferent to the Nation, were it only for having been opponents of the Court, can descend unchained from their “steep rocks at Croe in Combrailles” and elsewhere, and return singing praises: the old Parlement of Paris resumes its functions. Instead of a profligate bankrupt Abbé Terray, we have now, for Controller-General, a virtuous philosophic Turgot, with a whole Reformed France in his head. By whom whatsoever is wrong, in Finance or otherwise, will be righted,—as far as possible. Is it not as if Wisdom herself were henceforth to have seat and voice in the Council of Kings? Turgot has taken office with the noblest plainness of speech to that effect; been listened to with the noblest royal trustfulness.[^23] It is true, as King Louis objects, ‘They say he never goes to mass;’ but liberal France likes him little worse for that; liberal France answers, ‘The Abbé Terray always went.’ Philosophism sees, for the first time, a Philosophe (or even a Philosopher) in office: she in all things will applausively second him; neither will light old Maurepas obstruct, if he can easily help it.
+For the first time, an Enlightenment intellectual has real governmental power. Turgot walks into office and basically says: "I'm here to fix everything." And the King replies: "Cool, sounds great."
 
-Then how “sweet” are the manners; vice “losing all its deformity;” becoming *decent* (as established things, making regulations for themselves, do); becoming almost a kind of “sweet” virtue! Intelligence so abounds; irradiated by wit and the art of conversation. Philosophism sits joyful in her glittering saloons, the dinner-guest of Opulence grown ingenuous, the very nobles proud to sit by her; and preaches, lifted up over all Bastilles, a coming millennium. From far Ferney, Patriarch Voltaire gives sign: veterans Diderot, D’Alembert have lived to see this day; these with their younger Marmontels, Morellets, Chamforts, Raynals, make glad the spicy board of rich ministering Dowager, of philosophic Farmer-General. O nights and suppers of the gods! Of a truth, the long-demonstrated will now be done: “the Age of Revolutions approaches” (as Jean Jacques wrote), but then of happy blessed ones. Man awakens from his long somnambulism; chases the Phantasms that beleagured and bewitched him. Behold the new morning glittering down the eastern steeps; fly, false Phantasms, from its shafts of light; let the Absurd fly utterly forsaking this lower Earth for ever. It is Truth and *Astræa Redux* that (in the shape of Philosophism) henceforth reign. For what imaginable purpose was man made, if not to be “happy”? By victorious Analysis, and Progress of the Species, happiness enough now awaits him. Kings can become philosophers; or else philosophers Kings. Let but Society be once rightly constituted,—by victorious Analysis. The stomach that is empty shall be filled; the throat that is dry shall be wetted with wine. Labour itself shall be all one as rest; not grievous, but joyous. Wheatfields, one would think, cannot come to grow untilled; no man made clayey, or made weary thereby;—unless indeed machinery will do it? Gratuitous Tailors and Restaurateurs may start up, at fit intervals, one as yet sees not how. But if each will, according to rule of Benevolence, have a care for all, then surely—no one will be uncared for. Nay, who knows but, by sufficiently victorious Analysis, “human life may be indefinitely lengthened,” and men get rid of Death, as they have already done of the Devil? We shall then be happy in spite of Death and the Devil.—So preaches magniloquent Philosophism her *Redeunt Saturnia regna.*
+There's just one tiny issue. Turgot doesn't go to Mass. But as people pointed out, "At least he doesn't commit financial fraud like Abbé Terray, who went to Mass every day." Touché.
 
-The prophetic song of Paris and its Philosophes is audible enough in the Versailles Œil-de-Bœuf; and the Œil-de-Bœuf, intent chiefly on nearer blessedness, can answer, at worst, with a polite ‘Why not?’ Good old cheery Maurepas is too joyful a Prime Minister to dash the world’s joy. Sufficient for the day be its own evil. Cheery old man, he cuts his jokes, and hovers careless along; his cloak well adjusted to the wind, if so be he may please all persons. The simple young King, whom a Maurepas cannot think of troubling with business, has retired into the interior apartments; taciturn, irresolute; though with a sharpness of temper at times: he, at length, determines on a little smithwork; and so, in apprenticeship with a Sieur Gamain (whom one day he shall have little cause to bless), is learning to make locks.[^24] It appears further, he understood Geography; and could read English. Unhappy young King, his childlike trust in that foolish old Maurepas deserved another return. But friend and foe, destiny and himself have combined to do him hurt.
+## The Vibe Check
 
-Meanwhile the fair young Queen, in her halls of state, walks like a goddess of Beauty, the cynosure of all eyes; as yet mingles not with affairs; heeds not the future; least of all, dreads it. Weber and Campan[^25] have pictured her, there within the royal tapestries, in bright boudoirs, baths, peignoirs, and the Grand and Little Toilette; with a whole brilliant world waiting obsequious on her glance: fair young daughter of Time, what things has Time in store for thee! Like Earth’s brightest Appearance, she moves gracefully, environed with the grandeur of Earth: a reality, and yet a magic vision; for, behold, shall not utter Darkness swallow it! The soft young heart adopts orphans, portions meritorious maids, delights to succour the poor,—such poor as come picturesquely in her way; and sets the fashion of doing it; for as was said, Benevolence has now begun reigning. In her Duchess de Polignac, in Princess de Lamballe, she enjoys something almost like friendship; now too, after seven long years, she has a child, and soon even a Dauphin, of her own; can reckon herself, as Queens go, happy in a husband.
+Paris is absolutely VIBING. The salons are buzzing with optimism. The philosophers are giving each other high-fives. Old Voltaire—the godfather of French skepticism—is still alive at his estate in Ferney, watching approvingly.
 
-Events? The Grand events are but charitable Feasts of Morals (*Fêtes des mœurs*), with their Prizes and Speeches; Poissarde Processions to the Dauphin’s cradle; above all, Flirtations, their rise, progress, decline and fall. There are Snow-statues raised by the poor in hard winter to a Queen who has given them fuel. There are masquerades, theatricals; beautifyings of little Trianon, purchase and repair of St. Cloud; journeyings from the summer Court-Elysium to the winter one. There are poutings and grudgings from the Sardinian Sisters-in-law (for the Princes too are wedded); little jealousies, which Court-Etiquette can moderate. Wholly the lightest-hearted frivolous foam of Existence; yet an artfully refined foam; pleasant were it not so costly, like that which mantles on the wine of Champagne!
+The conversation everywhere is: "The Age of Revolutions is coming!" But they mean it in a GOOD way—like peaceful, sensible revolutions that fix society's problems. Ha. Ha ha. Oh, you sweet summer children.
 
-Monsieur, the King’s elder Brother, has set up for a kind of wit; and leans towards the Philosophe side. Monseigneur d’Artois pulls the mask from a fair impertinent; fights a duel in consequence,—almost drawing blood.[^26] He has breeches of a kind new in this world;—a fabulous kind; “four tall lackeys,” says Mercier, as if he had seen it, “hold him up in the air, that he may fall into the garment without vestige of wrinkle; from which rigorous encasement the same four, in the same way, and with more effort, must deliver him at night.”[^27] This last is he who now, as a gray time-worn man, sits desolate at Grätz;[^28] having winded up his destiny with the Three Days. In such sort are poor mortals swept and shovelled to and fro.
+Here's what the optimists believed:
+- Kings could become philosophers (or philosophers could become kings)
+- Society could be "rationally reorganized" to eliminate suffering
+- Maybe even death itself could be conquered through science!
 
-[^23]: Turgot’s Letter: Condorcet, Vie de Turgot (Œuvres de Condorcet , t. v.),
-[^24]: Campan, i. 125.
-[^25]: Ib. i. 100-151. Weber, i. 11-50.
-[^26]: Besenval, ii. 282-330.
-[^27]: Mercier, Nouveau Paris , iii. 147.
-[^28]: A.D. 1834.
+I am not making this up. They literally thought human life might be "indefinitely lengthened." The 18th century had its own version of Silicon Valley techno-utopianism.
+
+## Meanwhile, Back at Versailles
+
+What's the new King actually DOING with all this opportunity for reform?
+
+Learning to make locks.
+
+No, seriously. Louis XVI's hobby was locksmithing. He apprenticed himself to a man named Sieur Gamain, spent hours in his workshop fiddling with metal, and became genuinely skilled at making locks and keys.
+
+*Narrator voice: He would eventually have cause to regret this choice of mentor.*
+
+He also knew Geography and could read English. So that's something.
+
+As for the new Queen, Marie Antoinette? She's 18, gorgeous, and literally the center of attention everywhere she goes. She adopts orphans, donates to charity, decorates her little palace at Trianon, and has absolutely NO IDEA what's coming. Weber and Campan, who wrote detailed memoirs of court life, describe her as walking through Versailles like "a goddess of Beauty," surrounded by luxury, utterly carefree.
+
+*"Fair young daughter of Time, what things has Time in store for thee!"* as the original author put it. Yeah, no kidding.
+
+## The Supporting Cast
+
+- **Old Maurepas**: The Prime Minister. He's nearly 80, cares about nothing except staying in power, and deals with problems by cracking jokes and waiting for them to go away. His governing philosophy is basically: "Why worry?"
+
+- **Monsieur** (the King's brother): Has pretensions of being an intellectual. Leans philosophe.
+
+- **The Count of Artois** (the other brother): A fashion victim whose trousers were so tight that four servants had to hold him in the air while he dropped into them, then extract him at night with equal difficulty. He fought a duel once and almost drew blood. How exciting!
+
+Fun fact: that same Count of Artois will eventually flee the Revolution, spend decades in exile, return as King Charles X, get overthrown AGAIN in 1830, and die sad and forgotten in Austria. But that's way ahead of the story.
+
+## The Real Story: Paper
+
+Why is this chapter called "The Paper Age"?
+
+Because that's what this era runs on: PAPER. Paper money (which is starting to replace gold, which they're running out of). Paper theories (from all those Enlightenment thinkers). Paper promises (from the government to the people).
+
+The problem with paper is that it's made from rags. It's a *simulacrum* of value, not the real thing. And what happens when everyone realizes the paper isn't backed by anything solid?
+
+Well, that's what we're about to find out.
+
+In exactly fifteen years—on May 5th, 1789—this same young King Louis will open the Estates-General, and the REAL revolution will begin.
+
+But for now? It's all roses and sunshine and optimism.
+
+Enjoy it while it lasts.

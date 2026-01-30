@@ -1,31 +1,65 @@
-# Astræa Redux without Cash
+# Astraea Redux Without Cash: The American Problem
 
-Observe, however, beyond the Atlantic, has not the new day verily dawned! Democracy, as we said, is born; storm-girt, is struggling for life and victory. A sympathetic France rejoices over the Rights of Man; in all saloons, it is said, What a spectacle! Now too behold our Deane, our Franklin, American Plenipotentiaries, here in position soliciting;[^35] the sons of the Saxon Puritans, with their Old-Saxon temper, Old-Hebrew culture, sleek Silas, sleek Benjamin, here on such errand, among the light children of Heathenism, Monarchy, Sentimentalism, and the Scarlet-woman. A spectacle indeed; over which saloons may cackle joyous; though Kaiser Joseph, questioned on it, gave this answer, most unexpected from a Philosophe: ‘Madame, the trade I live by is that of royalist (*Mon métier à moi c’est d’être royaliste*).’
+Guess what? While France is philosophizing about freedom, actual freedom is happening across the Atlantic. And France wants IN.
 
-So thinks light Maurepas too; but the wind of Philosophism and force of public opinion will blow him round. Best wishes, meanwhile, are sent; clandestine privateers armed. Paul Jones shall equip his *Bon Homme Richard:* weapons, military stores can be smuggled over (if the English do not seize them); wherein, once more Beaumarchais, dimly as the Giant Smuggler becomes visible,—filling his own lank pocket withal. But surely, in any case, France should have a Navy. For which great object were not now the time: now when that proud Termagant of the Seas has her hands full? It is true, an impoverished Treasury cannot build ships; but the hint once given (which Beaumarchais says he gave), this and the other loyal Seaport, Chamber of Commerce, will build and offer them. Goodly vessels bound into the waters; a *Ville de Paris*, Leviathan of ships.
+## America: The Proof of Concept
 
-And now when gratuitous three-deckers dance there at anchor, with streamers flying; and eleutheromaniac Philosophedom grows ever more clamorous, what can a Maurepas do—but gyrate? Squadrons cross the ocean: Gages, Lees, rough Yankee Generals, “with woollen night-caps under their hats,” present arms to the far-glancing Chivalry of France; and new-born Democracy sees, not without amazement, “Despotism tempered by Epigrams” fight at her side. So, however, it is. King’s forces and heroic volunteers; Rochambeaus, Bouillés, Lameths, Lafayettes, have drawn their swords in this sacred quarrel of mankind;—shall draw them again elsewhere, in the strangest way.
+Democracy has been BORN. The American colonies have told King George to pound sand, and—spoiler alert—they're going to win. For French intellectuals, this is HUGE. Here's living proof that their theories work! You CAN overthrow tyrants! You CAN establish a government based on rights!
 
-Off Ushant some naval thunder is heard. In the course of which did our young Prince, Duke de Chartres, “hide in the hold;” or did he materially, by *active* heroism, contribute to the victory? Alas, by a second edition, we learn that there was no victory; or that English Keppel had it.[^36] Our poor young Prince gets his Opera plaudits changed into mocking tehees; and cannot become Grand-Admiral,—the source to him of woes which one may call endless.
+And so Benjamin Franklin shows up in Paris in 1777, all folksy wisdom and bifocals, and the French salons go ABSOLUTELY WILD. Here's this printer's son from Philadelphia, rubbing elbows with duchesses and philosophes, and everyone wants a piece of him. The Americans need money and guns? France will totally help!
 
-Woe also for *Ville de Paris*, the Leviathan of ships! English Rodney has clutched it, and led it home, with the rest; so successful was his new “manœuvre of breaking the enemy’s line.”[^37] It seems as if, according to Louis XV., “France were never to have a Navy.” Brave Suffren must return from Hyder Ally and the Indian Waters; with small result; yet with great glory for “six” *non-defeats;*—which indeed, with such seconding as he had, one may reckon heroic. Let the old sea-hero rest now, honoured of France, in his native Cevennes mountains; send smoke, not of gunpowder, but mere culinary smoke, through the old chimneys of the Castle of Jalès,—which one day, in other hands, shall have other fame. Brave Lapérouse shall by and by lift anchor, on philanthropic Voyage of Discovery; for the King knows Geography.[^38] But, alas, this also will not prosper: the brave Navigator goes, and returns not; the Seekers search far seas for him in vain. He has vanished trackless into blue Immensity; and only some mournful mysterious shadow of him hovers long in all heads and hearts.
+(Emperor Joseph II of Austria, asked what he thought about this, replied dryly: "Madame, my trade is being a royalist." Smart man.)
 
-Neither, while the War yet lasts, will Gibraltar surrender. Not though Crillon, Nassau-Siegen, with the ablest projectors extant, are there; and Prince Condé and Prince d’Artois have hastened to help. Wondrous leather-roofed Floating-batteries, set afloat by French-Spanish *Pacte de Famille*, give gallant summons: to which, nevertheless, Gibraltar answers Plutonically, with mere torrents of redhot iron,—as if stone Calpe had become a throat of the Pit; and utters such a Doom’s-blast of a No, as all men must credit.[^39]
+## France Joins the Fight
 
-And so, with this loud explosion, the noise of War has ceased; an Age of Benevolence may hope, for ever. Our noble volunteers of Freedom have returned, to be her missionaries. Lafayette, as the matchless of his time, glitters in the Versailles Œil-de-Beouf; has his Bust set up in the Paris Hôtel-de-Ville. Democracy stands inexpugnable, immeasurable, in her New World; has even a foot lifted towards the Old;—and our French Finances, little strengthened by such work, are in no healthy way.
+Old Maurepas was reluctant at first—helping rebels seems like bad precedent when you're running an absolute monarchy—but public opinion pushed him around. France starts sending secret aid, then official aid, then actual troops.
 
-What to do with the Finance? This indeed is the great question: a small but most black weather-symptom, which no radiance of universal hope can cover. We saw Turgot cast forth from the Controllership, with shrieks,—for want of a Fortunatus’ Purse. As little could M. de Clugny manage the duty; or indeed do anything, but consume his wages; attain “a place in History,” where as an ineffectual shadow thou beholdest him still lingering;—and let the duty manage itself. Did Genevese Necker *possess* such a Purse, then? He possessed banker’s skill, banker’s honesty; *credit* of all kinds, for he had written Academic Prize Essays, struggled for India Companies, given dinners to Philosophes, and “realised a fortune in twenty years.” He possessed, further, a taciturnity and solemnity; of depth, or else of dulness. How singular for Celadon Gibbon, false swain as he had proved; whose father, keeping most probably his own gig, “would not hear of such a union,”—to find now his forsaken Demoiselle Curchod sitting in the high places of the world, as Minister’s Madame, and “Necker not jealous!”[^40]
+Famous names join the cause: Lafayette (who will be VERY important later), Rochambeau, a whole parade of French aristocrats in fancy uniforms. It's weirdly ironic: "Despotism tempered by Epigrams" fighting alongside newborn Democracy.
 
-A new young Demoiselle, one day to be famed as a Madame and De Staël, was romping about the knees of the Decline and Fall: the lady Necker founds Hospitals; gives solemn Philosophe dinner-parties, to cheer her exhausted Controller-General. Strange things have happened: by clamour of Philosophism, management of Marquis de Pezay, and Poverty constraining even Kings. And so Necker, Atlas-like, sustains the burden of the Finances, for five years long?[^41] Without wages, for he refused such; cheered only by Public Opinion, and the ministering of his noble Wife. With many thoughts in him, it is hoped;—which, however, he is shy of uttering. His *Compte Rendu*, published by the royal permission, fresh sign of a New Era, shows wonders;—which what but the genius of some Atlas-Necker can prevent from becoming portents? In Necker’s head too there is a whole pacific French Revolution, of its kind; and in that taciturn dull depth, or deep dulness, ambition enough.
+The results are... mixed:
 
-Meanwhile, alas, his Fotunatus’ Purse turns out to be little other than the old “*vectigal* of Parsimony.” Nay, he too has to produce his scheme of taxing: Clergy, Noblesse to be taxed; Provincial Assemblies, and the rest,—like a mere Turgot! The expiring M. de Maurepas must gyrate one other time. Let Necker also depart; not unlamented.
+**Wins:**
+- Lafayette becomes an international celebrity
+- American independence happens (eventually)
 
-Great in a private station, Necker looks on from the distance; abiding his time. “Eighty thousand copies” of his new Book, which he calls *Administration des Finances*, will be sold in few days. He is gone; but shall return, and that more than once, borne by a whole shouting Nation. Singular Controller-General of the Finances; once Clerk in Thelusson’s Bank!
+**Losses:**
+- The French Navy gets wrecked trying to help
+- The Duke of Chartres may or may not have hidden in the ship's hold during a battle (accounts vary, but his reputation never recovered)
+- Gibraltar doesn't fall, despite elaborate floating batteries
+- The royal treasury bleeds money it doesn't have
 
-[^35]: 1777; Deane somewhat earlier: Franklin remained till 1785.
-[^36]: 27th July, 1778.
-[^37]: 9th and 12th April, 1782.
-[^38]: August 1st, 1785.
-[^39]: Annual Register (Dodsley’s), xxv. 258-267. September, October, 1782.
-[^40]: Gibbon’s Letters: date, 16th June, 1777, &c.
-[^41]: Till May, 1781.
+## The Finance Problem Gets Worse
+
+Here's the thing about wars: they're EXPENSIVE. And France was already broke. Now it's REALLY broke.
+
+Turgot got fired for trying to reform the tax system. His replacement, M. de Clugny, accomplished literally nothing except collecting his salary. Then came **Jacques Necker**.
+
+Necker was interesting. A Swiss Protestant banker, married to a socialite who hosted philosophical dinner parties, he had made a fortune in finance and written respected economic treatises. He took the job of Controller-General without salary (good PR), balanced the books through creative accounting and borrowing (less good), and became hugely popular by publishing the first-ever transparent royal budget.
+
+That *Compte Rendu* (financial report) was a SENSATION. Regular people could actually see where the money went! Revolutionary concept!
+
+But here's the problem: Necker didn't actually have a magic money-making machine. He was just kicking the can down the road. When he tried to do what Turgot tried—tax the rich people—he got the same response. Shrieking outrage. And out the door he went.
+
+Necker wasn't done though. He published a bestseller critiquing French finances ("80,000 copies sold in days!") and waited for his moment. He'd be back. Multiple times, actually.
+
+## Enter the Scientists
+
+Meanwhile, the Americans inspired French science too. Benjamin Franklin was himself an accomplished scientist, and his presence sparked a craze for practical experiments.
+
+The Montgolfier brothers invented the HOT AIR BALLOON in 1783. First they sent up a duck and a rooster (both survived). Then actual humans went up. The whole country was transfixed—here was literal proof that the old limits could be transcended!
+
+Less successful: the scientific expedition of La Pérouse, sent by Louis XVI (who loved geography) to explore the Pacific. The expedition vanished without a trace. Years of searching found nothing. It was like the universe was sending a message: *Some voyages, once begun, cannot be reversed.*
+
+## The Bottom Line
+
+By the mid-1780s, France has:
+- Helped create a new democracy based on Enlightenment principles ✓
+- Gone even deeper into debt ✓
+- Created a generation of nobles who've seen revolution succeed ✓
+- Still not fixed any of its own problems ✓
+
+Lafayette returns to France as "the hero of two worlds," his head full of American ideas about liberty and rights. He gets a bust installed in the Paris city hall. Everywhere you look, idealism is rising.
+
+But the treasury is empty. The debts are crushing. And the aristocrats STILL won't pay taxes.
+
+Something's gotta give.

@@ -1,33 +1,83 @@
-# Windbags
+# Windbags: Hot Air, Literally
 
-So marches the world, in this its Paper Age, or Era of Hope. Not without obstructions, war-explosions; which, however, heard from such distance, are little other than a cheerful marching-music. If indeed that dark living chaos of Ignorance and Hunger, five-and-twenty million strong, under your feet,—were to begin playing!
+So there's France in its Paper Age, philosophizing about progress while 25 million hungry people simmer beneath. But let's not think about THAT. Let's go to Longchamp and watch rich people parade around!
 
-For the present, however, consider Longchamp; now when Lent is ending, and the glory of Paris and France has gone forth, as in annual wont. Not to assist at *Tenebris* Masses, but to sun itself and show itself, and salute the Young Spring.[^42] Manifold, bright-tinted, glittering with gold; all through the Bois de Boulogne, in longdrawn variegated rows;—like longdrawn living flower-borders, tulips, dahlias, lilies of the valley; all in their moving flower-pots (of new-gilt carriages): pleasure of the eye, and pride of life! So rolls and dances the Procession: steady, of firm assurance, as if it rolled on adamant and the foundations of the world; not on mere heraldic parchment,—under which smoulders a lake of fire. Dance on, ye foolish ones; ye sought not wisdom, neither have ye found it. Ye and your fathers have sown the wind, ye shall reap the whirlwind. Was it not, from of old, written: *The wages of sin is death?*
+## The Longchamp Parade
 
-But at Longchamp, as elsewhere, we remark for one thing, that dame and cavalier are waited on each by a kind of human familiar, named *jokei.* Little elf, or imp; though young, already withered; with its withered air of premature vice, of knowingness, of completed elf-hood: useful in various emergencies. The name *jokei* (jockey) comes from the English; as the thing also fancies that it does. Our Anglomania, in fact , is grown considerable; prophetic of much. If France is to be free, why shall she not, now when mad war is hushed, love neighbouring Freedom? Cultivated men, your Dukes de Liancourt, de la Rochefoucault admire the English Constitution, the English National Character; would import what of it they can.
+Every spring at Lent's end, the fashionable set of Paris heads to the Bois de Boulogne for the Longchamp parade. Ostensibly it's about Easter masses, but really it's about showing off.
 
-Of what is lighter, especially if it be light as wind, how much easier the freightage! Non-Admiral Duke de Chartres (not yet d’Orléans or Egalité) flies to and fro across the Strait; importing English Fashions; this he, as hand-and-glove with an English Prince of Wales, is surely qualified to do. Carriages and saddles; top-boots and *rédingotes*, as we call riding-coats. Nay the very mode of riding: for now no man on a level with his age but will trot *à l’Anglaise*, rising in the stirrups; scornful of the old sitfast method, in which, according to Shakspeare, “butter and eggs” go to market. Also, he can urge the fervid wheels, this brave Chartres of ours; no whip in Paris is rasher and surer than the unprofessional one of Monseigneur.
+Picture this: mile after mile of gilded carriages, each occupied by the most elaborately dressed aristocrats in Europe. They roll past like "living flower-borders"—tulips, dahlias, lilies. The women wear towering wigs and piles of jewels. The men wear embroidered coats that cost more than a peasant family earns in a decade.
 
-Elf *jokeis*, we have seen; but see now real Yorkshire jockeys, and what they ride on, and train: English racers for French Races. These likewise we owe first (under the Providence of the Devil) to Monseigneur. Prince d’Artois also has his stud of racers. Prince d’Artois has withal the strangest horseleech: a moonstruck, much-enduring individual, of Neuchâtel in Switzerland,—named *Jean Paul Marat*. A problematic Chevalier d’Eon, now in petticoats, now in breeches, is no less problematic in London than in Paris; and causes bets and lawsuits. Beautiful days of international communion! Swindlery and Blackguardism have stretched hands across the Channel, and saluted mutually: on the racecourse of Vincennes or Sablons, behold in English curricle-and-four, wafted glorious among the principalities and rascalities, an English Dr. Dodd,[^43]—for whom also the too early gallows gapes.
+They look so CONFIDENT. Like they're riding on the foundations of the world itself.
 
-Duke de Chartres was a young Prince of great promise, as young Princes often are; which promise unfortunately has belied itself. With the huge Orléans Property, with Duke de Penthievre for Father-in-law (and now the young Brother-in-law Lamballe killed by excesses),—he will one day be the richest man in France. Meanwhile, “his hair is all falling out, his blood is quite spoiled,”—by early transcendentalism of debauchery. Carbuncles stud his face; dark studs on a ground of burnished copper. A most signal failure, this young Prince! The stuff prematurely burnt out of him: little left but foul smoke and ashes of expiring sensualities: what might have been Thought, Insight, and even Conduct, gone now, or fast going,—to confused darkness, broken by bewildering dazzlements; to obstreperous crotchets; to activities which you may call semi-delirious, or even semi-galvanic! Paris affects to laugh at his charioteering; but he heeds not such laughter.
+Plot twist: They're actually riding on parchment. Hereditary privileges, royal grants, legal fictions. And underneath all that parchment? A lake of fire that's about to break through.
 
-On the other hand, what a day, not of laughter, was that, when he threatened, for lucre’s sake, to lay sacrilegious hand on the Palais-Royal Garden![^44] The flower-parterres shall be riven up; the Chestnut Avenues shall fall: time-honoured boscages, under which the Opera Hamadryads were wont to wander, not inexorable to men. Paris moans aloud. Philidor, from his Café de la Regence, shall no longer look on greenness; the loungers and losels of the world, where now shall they haunt? In vain is moaning. The axe glitters; the sacred groves fall crashing,—for indeed Monseigneur was short of money: the Opera Hamadryads fly with shrieks. Shriek not, ye Opera Hamadryads; or not as those that have no comfort. He will surround your Garden with new edifices and piazzas: though narrowed, it shall be replanted; dizened with hydraulic jets, cannon which the sun fires at noon; things bodily, things spiritual, such as man has not imagined;—and in the Palais-Royal shall again, and more than ever, be the *Sorcerer’s Sabbath* and *Satan-at-Home* of our Planet.
+But today? Today is beautiful. So they dance on.
 
-What will not mortals attempt? From remote Annonay in the Vivarais, the Brothers Montgolfier send up their paper-dome, filled with the smoke of burnt wool.[^45] The Vivarais provincial assembly is to be prorogued this same day: Vivarais Assembly-members applaud, and the shouts of congregated men. Will victorious Analysis scale the very Heavens, then?
+## Anglomania
 
-Paris hears with eager wonder; Paris shall ere long see. From Reveilion’s Paper-warehouse there, in the Rue St. Antoine (a noted Warehouse),—the new Montgolfier air-ship launches itself. Ducks and poultry are borne skyward: but now shall men be borne.[^46] Nay, Chemist Charles thinks of hydrogen and glazed silk. Chemist Charles will himself ascend, from the Tuileries Garden; Montgolfier solemnly cutting the cord. By Heaven, he also mounts, he and another? Ten times ten thousand hearts go palpitating; all tongues are mute with wonder and fear; till a shout, like the voice of seas, rolls after him, on his wild way. He soars, he dwindles upwards; has become a mere gleaming circlet,—like some Turgotine snuff-box, what we call “*Turgotine Platitude;*” like some new daylight Moon! Finally he descends; welcomed by the universe. Duchess Polignac, with a party, is in the Bois de Boulogne, waiting; though it is drizzly winter; the 1st of December 1783. The whole chivalry of France, Duke de Chartres foremost, gallops to receive him.[^47]
+The hot new trend is EVERYTHING ENGLISH:
 
-Beautiful invention; mounting heavenward, so beautifully,—so unguidably! Emblem of much, and of our Age of Hope itself; which shall mount, specifically-light, majestically in this same manner; and hover,—tumbling whither Fate will. Well if it do not, Pilatre-like, explode; and demount all the more tragically!—So, riding on windbags, will men scale the Empyrean.
+- **Fashion**: Riding coats ("rédingotes"), top-boots, English-style saddles
+- **Riding Style**: The "English trot" (rising in the stirrups) has replaced the old "butter-and-eggs" sitting style
+- **Racing**: Actual English jockeys are imported to run actual English horses on new French racetracks
+- **Attitudes**: Looking bored and cynical is very chic
 
-Or observe Herr Doctor Mesmer, in his spacious Magnetic Halls. Long-stoled he walks; reverend, glancing upwards, as in rapt commerce; an Antique Egyptian Hierophant in this new age. Soft music flits; breaking fitfully the sacred stillness. Round their Magnetic Mystery, which to the eye is mere tubs with water,—sit breathless, rod in hand, the circles of Beauty and Fashion, each circle a living circular *Passion-Flower:* expecting the magnetic afflatus, and new-manufactured Heaven-on-Earth. O women, O men, great is your infidel-faith! A Parlementary Duport, a Bergasse, D’Espréménil we notice there; Chemist Berthollet too,—on the part of Monseigneur de Chartres.
+The Duke of Chartres (later Philippe Égalité, but we're getting ahead of ourselves) is the biggest Anglophile. He crosses the Channel constantly, hangs out with the English Prince of Wales, and imports everything from fashion to racing culture.
 
-Had not the Academy of Sciences, with its Baillys, Franklins, Lavoisiers, interfered! But it did interfere. (Lacretelle, 18me Siecle, iii.258.) Mesmer may pocket his hard money, and withdraw. Let him walk silent by the shore of the Bodensee, by the ancient town of Constance; meditating on much. For so, under the strangest new vesture, the old great truth (since no vesture can hide it) begins again to be revealed: That man is what we call a miraculous creature, with miraculous power over men; and, on the whole, with such a Life in him, and such a World round him, as victorious Analysis, with her Physiologies, Nervous-systems, Physic and Metaphysic, will never completely *name*, to say nothing of explaining. Wherein also the Quack shall, in all ages, come in for his share.[^48]
+Fun fact: One of the Prince d'Artois's horse-doctors during this period was a Swiss guy named **Jean-Paul Marat**. Yes, THAT Marat. The future revolutionary psychopath started out treating thoroughbreds. Life is weird.
 
-[^42]: Mercier, Tableau de Paris , ii. 51. Louvet, Roman de Faublas , &c.
-[^43]: Adelung, Geschichte der Menschlichen Narrheit , § Dodd.
-[^44]: 1781-82. (Dulaure, viii. 423.)
-[^45]: 5th June, 1783.
-[^46]: October and November, 1783.
-[^47]: Lacretelle, 18me Siècle , iii. 258.
-[^48]: August, 1784.
+## Chartres: A Character Study
+
+Speaking of the Duke of Chartres, let's talk about this guy, because he's going to matter later.
+
+He's got EVERYTHING going for him: enormous wealth (he'll be the richest man in France), royal blood, every advantage. But his face is covered in carbuncles. His hair is falling out. His blood is "quite spoiled" by what contemporary sources delicately call "early transcendentalism of debauchery."
+
+Basically, he partied too hard too young, and his body shows it. What could have been intelligence has become "confused darkness." What could have been good judgment has become "obstreperous crotchets." He's a wreck in an expensive wrapper.
+
+His biggest scandal in this period? Cutting down the beautiful chestnut trees of the Palais-Royal garden to make room for commercial development. Paris MOURNED those trees. The Opera girls who used to stroll beneath them mourned them. Even the intellectual idlers at the nearby café mourned them.
+
+But Chartres needed cash, so down they came. The Palais-Royal will be rebuilt into something new—arcades full of shops, coffeehouses, and less reputable establishments. It will become the "Sorcerer's Sabbath" of Paris, a place where anything goes.
+
+(That same Palais-Royal, by the way, will be the launching point of the Revolution in 1789. But we're getting ahead of ourselves.)
+
+## Balloons! 
+
+In 1783, the Montgolfier brothers from rural Annonay launch the first hot air balloon. It's made of paper and silk, filled with the smoke of burning wool.
+
+The local assembly happens to be in session. They stop everything to watch this paper dome rise into the sky. "Will Analysis scale the very Heavens?" they wonder.
+
+Quickly, the craze spreads to Paris. At Réveillon's paper factory (remember that name too), they launch a balloon carrying ducks and poultry. The animals survive! Then they start sending HUMANS up.
+
+December 1, 1783: Chemist Charles ascends from the Tuileries garden in a hydrogen balloon. Ten thousand hearts stop beating as he rises, shrinks to a dot, then... descends safely! The Duchess de Polignac and her party are waiting in the Bois de Boulogne. The whole chivalry of France gallops to congratulate him.
+
+What a symbol, right? Rising majestically on nothing but hot air, so beautiful, so... unguidable. Like France itself in this Era of Hope—ascending magnificently, heading... somewhere. Just try not to think about what happens when the balloon pops.
+
+## Mesmerism
+
+Speaking of hot air, let's talk about Doctor Mesmer.
+
+Franz Anton Mesmer shows up in Paris claiming he's discovered "animal magnetism"—an invisible force that can cure diseases, unlock psychic powers, and generally do anything you want if you believe hard enough.
+
+His séances are held in luxurious halls. Soft music plays. Beautiful aristocratic women sit in circles around tubs of "magnetized water," holding metal rods, waiting to be healed. Mesmer walks among them in flowing robes, making passes with his hands, achieving what he calls "crises" (which look suspiciously like hysteria).
+
+It's nonsense, of course. The Academy of Sciences (including Benjamin Franklin and the chemist Lavoisier) investigates and concludes it's all imagination. Mesmer eventually slinks off to Switzerland.
+
+But here's the thing: Mesmer tapped into something real. The human mind IS strange and powerful. Belief DOES affect the body. The old certainties ARE crumbling. People are desperate for new explanations, new experiences, new SOMETHING.
+
+That desperation will find other outlets soon enough.
+
+## The Weather Report
+
+So that's France in the 1780s:
+
+- The rich ride around showing off ✓
+- English fashions are in ✓
+- Balloons are rising ✓
+- Quacks are thriving ✓
+- The treasury is empty ✓
+- The poor are starving ✓
+
+Meanwhile, the wind is shifting. And when it blows hard enough, all these balloons are going to go somewhere very unexpected.
+
+As Chesterfield said: "All the symptoms I have ever met with in History."
